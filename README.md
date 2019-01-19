@@ -155,9 +155,15 @@ Like many other movies of past eras, the original 3 Star Wars movies made extens
 
 
 
-![Photo of AT-AT miniature model ](photos/fxhistorysw/at-at.jpeg)
+![Photo of AT-AT miniature model use in a Star Wars movie](photos/fxhistorysw/at-at.jpeg)
 
 ( [source](https://www.starwars.com/news/the-5-most-grueling-star-wars-visual-effects) )
+
+
+
+![Photo of Lando puppet used in a Star Wars movie](photos/fxhistorysw/lando_puppet.jpeg)
+
+( [source](https://propstoreauction.com/view-auctions/catalog/id/78/lot/18558/) )
 
 
 
