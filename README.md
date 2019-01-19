@@ -39,3 +39,28 @@ by [geek.turtle](https://www.instagram.com/geek.turtle/)
 
 by [willcandytoyphotography](https://www.instagram.com/willcandytoyphotography/)
 ( [source](https://www.instagram.com/p/BsuOrHgFolc/) )
+
+
+# Who To Follow on Instagram
+
+If you are looking to find more **Star Wars toy photography** photos, then head over to Instagram and follow these people:…
+
+* [@blksrs](https://www.instagram.com/blksrs/)
+* [@chewbacookie](https://www.instagram.com/chewbacookie/)
+* [@chezpics66](https://www.instagram.com/chezpics66/)
+* [@geek.turtle](https://www.instagram.com/geek.turtle/)
+* [@latentimperium](https://www.instagram.com/latentimperium/)
+* [@starwarstheblackseries](https://www.instagram.com/starwarstheblackseries/)
+* [@stormtrooper_robbie](https://www.instagram.com/stormtrooper_robbie/)
+* [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
+* [@trooperalliance](https://www.instagram.com/trooperalliance/)
+* [@tx0666](https://www.instagram.com/tx0666/)
+* [@willcandytoyphotography](https://www.instagram.com/willcandytoyphotography/)
+
+
+This list is in alphabetical order. So no importance should be attributed to the order I put them into.
+
+Also, there are many other Instagram accounts out there for **Star Wars toy photography**.
+
+This list is not meant to be the exhaustive.
+It is just meant to get you started with **Star Wars toy photographers** follow.
