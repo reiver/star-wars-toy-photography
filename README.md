@@ -47,7 +47,7 @@ by [geek.turtle](https://www.instagram.com/geek.turtle/)
 
 
 
-![Star Wars toy photography of a Death Trooper](BsuOrHgFolc.jpeg)
+![Star Wars toy photography of a Death Trooper](examples/BsuOrHgFolc.jpeg)
 
 by [willcandytoyphotography](https://www.instagram.com/willcandytoyphotography/)
 ( [source](https://www.instagram.com/p/BsuOrHgFolc/) )
