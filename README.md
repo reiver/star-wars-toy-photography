@@ -190,7 +190,7 @@ But before getting into that, let's talk about **scale**.
 
 _Star Wars action figures_ come in different sizes.
 
-We try to be precise about these difference sizes by talking about: **scale**.
+We try to be precise about these different sizes by talking about: **scale**.
 
 Some example _scales_ include the **¹⁄₆ scale**, and the **¹⁄₁₂ scale**.
 These are also know as the **12 inch scale**, the and **6 inch scale** respectively.
