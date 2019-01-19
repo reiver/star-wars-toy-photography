@@ -179,7 +179,7 @@ Star Wars action figures and their vehicles are a type of _miniature model_ afte
 
 After seeing and reading all of that, you may be interested in becoming a **Star Wars toy photographer** yourself.
 
-If you want to do that, then one thing you should probably do is get yourself some _Star Wars action figures_.
+If you want to do that, then one thing you should probably do is get yourself some **Star Wars action figures**.
 
 There are a number of companies creating _realistic Star Wars action figures_ of various qualities, under various brands.
 
