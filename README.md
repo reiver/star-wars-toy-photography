@@ -15,6 +15,7 @@ This article covers how to get started with **Star Wars toy photography**.
   * [Realistic Toy Photography](#realistic-toy-photography)
   * [Movie Special Effects](#movie-special-effects)
 * [Action Figures](#action-figures)
+  * [Action Figure Recommendations](#action-figure-recommendations)
   * [Action Figure Scales](#action-figure-scales)
     * [1/6 Scale](#16-scale)
     * [1/12 Scale](#112-scale)
@@ -182,9 +183,55 @@ After seeing and reading all of that, you may be interested in becoming a **Star
 
 If you want to do that, then one thing you should probably do is get yourself some **Star Wars action figures**.
 
-There are a number of companies creating _realistic Star Wars action figures_ of various qualities, under various brands.
 
-But before getting into that, let's talk about **scale**.
+### Action Figure Recommendations
+
+If you have no idea what **Star Wars action figures** to start off getting, and just want a recommendation, then here it is:…
+
+**Tip #1**:
+
+Start off with:
+
+* Boba Fett,
+* Captain Phasm,
+* Clone Troopers,
+* Death Troopers,
+* First order Executor,
+* First Order Storm Troopers,
+* Hover Tank Commander,
+* Jango Fett,
+* Patrol Troopers,
+* Pretorian Guard,
+* Range Troopers,
+* Scout Troopers,
+* Shadow Troopers,
+* Shore Troopers,
+* Snow Troopers, and
+* Storm Troopers.
+
+**Obviously you do NOT need to buy all of these to get started with _Star Wars toy photography_.**
+
+Just pick one or two things from that list, to get started.
+
+(If you are curious, I started off with an S.H.Figuarts _Death Trooper_.)
+
+(Knowing what I know now I'd say that was probably a good choice for a first Star Wars action figure, as S.H.Figuarts tend to be more _posable_ than the alternatives in the ¹⁄₁₂ scale — in the 6 inch scale;
+and often have a higher level of detail than the alternative brands in the ¹⁄₁₂ scale — in the 6 inch scale.)
+
+(But my collection at the ¹⁄₁₂ scale -- at the 6 inch scale -- is made up of both _S.H.Figuarts Star Wars_ action figures, and _Hasbro Star Wars The Black Series_ action figures.)
+
+(The _Hasbro Black Series_ action figures are less expensive than the _S.H.Figuarts_. But the _S.H.Figuarts_ tend to be more posable, and have better details than the _Hasbro Black Series_ action figures.)
+
+(But anyways,…)
+
+Basically start of with **Star Wars action figures** that, _in the movies_, have helmets and body suits that are mostly made up of hard parts.
+
+Why?!… Because that you cannot see the eyes, the skin, and (what should be but often isn't) soft clothes on these action figures makes it is easier to take a _good_ looking photos with these action figures.
+
+And when you are starting off with _Star Wars toy photography_, not adding that complexity is probably a good idea.
+
+(Later on you can try action figures that are outside of this.)
+
 
 
 ### Action Figure Scales
