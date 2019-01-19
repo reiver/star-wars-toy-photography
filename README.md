@@ -86,7 +86,7 @@ But anyway, these are some **Star Wars toy photography** related hashtags on Ins
 * [#StarWarsBlackSeries](https://www.instagram.com/explore/tags/starwarsblackseries/)
 * [#StarWarsBlackSeries6Inch](https://www.instagram.com/explore/tags/starwarsblackseries6inch/)
 * [#StarWarsFigures](https://www.instagram.com/explore/tags/starwarsfigures/)
-* [@StarWarsTheBlackSeries](https://www.instagram.com/explore/tags/starwarstheblackseries/)
+* [#StarWarsTheBlackSeries](https://www.instagram.com/explore/tags/starwarstheblackseries/)
 * [#StarWarsPhotography](https://www.instagram.com/explore/tags/starwarsphotography/)
 * [#StarWarsToyPix](https://www.instagram.com/explore/tags/starwarstoypix/)
 * [#StarWarsToys](https://www.instagram.com/explore/tags/starwarstoys/)
