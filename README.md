@@ -192,7 +192,23 @@ _Star Wars action figures_ come in different sizes.
 
 We try to be precise about these difference sizes by talking about: **scale**.
 
-So, what do we mean by **scale**.
+Some example _scales_ include the **¹⁄₆ scale**, and the **¹⁄₁₂ scale**.
+These are also know as the **12 inch scale**, the and **6 inch scale** respectively.
+
+I.e., **¹⁄₆ scale** = **12 inch scale**.
+
+And **¹⁄₁₂ scale** = **6 inch scale**.
+
+Action figures in the **¹⁄₆ scale** (i.e., **12 inch scale**) are bigger.
+Tend to have the best detail.
+But are also very expensive for many people.
+
+Action figures in the **¹⁄₁₂ scale** (i.e., **6 inch scale**) are smaller.
+Tend to have OK detail (although not the best).
+But are a more affordable option for many people.
+
+So, what do we really mean by **scale**.…
+
 
 #### 1/6 Scale
 
