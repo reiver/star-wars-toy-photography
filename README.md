@@ -126,6 +126,8 @@ I.e., where when you look at the photograph, you cannot immediately tell whether
 
 Examples of _realistic Star Wars toy photography_ was shown in the [Examples](#examples) section.
 
+(Another form of **Star Wars toy photography** is where the photographer wants the Star Wars action figure to look like a small toy in the photo.)
+
 **This article is going to focus on _realistic Star Wars toy photography_.**
 
 
