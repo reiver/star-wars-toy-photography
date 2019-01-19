@@ -64,3 +64,26 @@ Also, there are many other Instagram accounts out there for **Star Wars toy phot
 
 This list is not meant to be the exhaustive.
 It is just meant to get you started with **Star Wars toy photographers** follow.
+
+
+## Hashtags on Instagram
+
+Many **Star Wars toy photographers** on Instagram tend to tag their **Star Wars toy photography** photos with certain hashtags.
+
+If you were to browse those hashtags you would see _a lot_ of **Star Wars toy photography** photos.
+
+And Instagram even lets you _follow_ hashtags.
+
+But anyway, these are some **Star Wars toy photography** related hashtags on Instagram:
+
+* [#HasbroStarWars](https://www.instagram.com/explore/tags/hasbrostarwars/)
+* [#HotToysStarWars](https://www.instagram.com/explore/tags/hottoysstarwars/)
+* [#SHFiguartsStarWars](https://www.instagram.com/explore/tags/shfiguartsstarwars/)
+* [#SideshowStarWars](https://www.instagram.com/explore/tags/sideshowstarwars/)
+* [#StarWarsActionFigures](https://www.instagram.com/explore/tags/starwarsactionfigures/)
+* [#StarWarsBlackSeries](https://www.instagram.com/explore/tags/starwarsblackseries/)
+* [#StarWarsFigures](https://www.instagram.com/explore/tags/starwarsfigures/)
+* [#StarWarsPhotography](https://www.instagram.com/explore/tags/starwarsphotography/)
+* [#StarWarsToyPix](https://www.instagram.com/explore/tags/starwarstoypix/)
+* [#StarWarsToys](https://www.instagram.com/explore/tags/starwarstoys/)
+* [#TBSFF](https://www.instagram.com/explore/tags/tbsff/)
