@@ -256,7 +256,7 @@ Some aren't (or can't) and stick to less expensive _Star Wars action figures_ at
 
 #### 1/12 Scale
 
-At leat at the time of writting, the **¹⁄₁₂ scale** is much more popular (in terms of usage) for _Star Wars toy photography (than the _¹⁄₆ scale_)._
+At least at the time of writting, the **¹⁄₁₂ scale** is much more popular (in terms of usage) for _Star Wars toy photography (than the _¹⁄₆ scale_)._
 
 The **¹⁄₁₂ scale** is also written as: **1/12 scale**.
 
