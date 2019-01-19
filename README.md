@@ -190,7 +190,7 @@ If you have no idea what **Star Wars action figures** to start off getting, and 
 
 **Tip #1**:
 
-Start off with:
+Start off getting one or two **Star Wars action figures** from this list:
 
 * Boba Fett,
 * Captain Phasm,
@@ -209,7 +209,7 @@ Start off with:
 * Snow Troopers, and
 * Storm Troopers.
 
-**Obviously you do NOT need to buy all of these to get started with _Star Wars toy photography_.**
+**Obviously you do NOT need to buy all of these _Star Wars action figures_ to get started with _Star Wars toy photography_.**
 
 Just pick one or two things from that list, to get started.
 
@@ -231,6 +231,24 @@ Why?!… Because that you cannot see the eyes, the skin, and (what should be but
 And when you are starting off with _Star Wars toy photography_, not adding that complexity is probably a good idea.
 
 (Later on you can try action figures that are outside of this.)
+
+
+**Tip #2**:
+
+Start with **¹⁄₁₂ scale** of **Star Wars action figures**.
+
+**¹⁄₁₂ scale** are also called **6 inch scale** action figures.
+
+If you want to keep the price as low as possible, then go for the **6 inch scale** version of the **Hasbro Star Wars The Black Series** line of **Star Wars action figures**.
+
+(WARNING: **Hasbro Star Wars The Black Series** comes in 2 different sizes. The larger **6 inch scale**. And the smaller _3.75 inch scale_.
+If you are going to use the _Hasbro Star Wars The Black Series_ line for **Star Wars toy photography**, then I would recommend the _6 inch scale_ version (over the _3.75 inch scale_ version).
+
+(You can also mix the _6 inch scale_ version of the _Hasbro Star Wars The Black Series_ line, with the _S.H.Figuarts Star Wars_ line which is also at the _6 inch scale_.)
+
+If you are OK with paying a bit more, to get better higher level of detail, and better posability in your _Star Wars action figures_, then go for **S.H.Figuarts Star Wars** action figures.
+
+(If you are curious, I have _both_ **S.H.Figuarts Star Wars** action figures, and **Hasbro Star Wars The Black Series** action figures.)
 
 
 
