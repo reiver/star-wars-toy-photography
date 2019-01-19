@@ -126,7 +126,7 @@ I.e., where when you look at the photograph, you cannot immediately tell whether
 
 Examples of _realistic Star Wars toy photography_ was shown in the [Examples](#examples) section.
 
-**This article is going to focus on _realistic Star Wars toy photography_, as shown in the [Examples](#examples) section.**
+**This article is going to focus on _realistic Star Wars toy photography_.**
 
 
 ### Movie Special Effects
@@ -139,5 +139,5 @@ Like many other movies of past eras, the original 3 Star Wars movies made extens
 
 **In a lot of ways, **Star Wars toy photography** follows the tradition of the original 3 Star Wars movies' use of _miniature models_ for creating certain _special effects_.**
 
-Star Wars action figures are a type of _miniature model_.
+Star Wars action figures are a type of _miniature model_ after all.
 
