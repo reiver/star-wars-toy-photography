@@ -277,8 +277,10 @@ Let's do another example for the **¹⁄₁₂ scale**:
 
 An AT-ST is 28 feet tall.
 
-So then at the _¹⁄₁₂ scale_ the AT-ST would be 56 inches tall.
+So then at the _¹⁄₁₂ scale_ the AT-ST would be 28 inches tall.
 
 Why?! Well because: 28 feet × ¹⁄₁₂ = 336 inches × ¹⁄₁₂ = 28 inches. (Or 2 foot 4 inches tall.)
+
+
 
 
