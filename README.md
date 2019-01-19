@@ -40,7 +40,7 @@ by [chewbacookie](https://www.instagram.com/chewbacookie/)
 
 
 
-![Star Wars toy photography of a Hover Tank](BpCki6_H7lj.jpeg)
+![Star Wars toy photography of a Hover Tank](examples/BpCki6_H7lj.jpeg)
 
 by [geek.turtle](https://www.instagram.com/geek.turtle/)
 ( [source](https://www.instagram.com/p/BpCki6_H7lj/) )
