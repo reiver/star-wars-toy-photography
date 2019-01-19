@@ -222,7 +222,7 @@ and often have a higher level of detail than the alternative brands in the ¹⁄
 
 (The _Hasbro Black Series_ action figures are less expensive than the _S.H.Figuarts_. But the _S.H.Figuarts_ tend to be more posable, and have better details than the _Hasbro Black Series_ action figures.)
 
-(But anyways,…)
+(But anyway,…)
 
 Basically start of with **Star Wars action figures** that, _in the movies_, have helmets and body suits that are mostly made up of hard parts.
 
