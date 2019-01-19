@@ -41,7 +41,7 @@ by [willcandytoyphotography](https://www.instagram.com/willcandytoyphotography/)
 ( [source](https://www.instagram.com/p/BsuOrHgFolc/) )
 
 
-# Who To Follow on Instagram
+## Who To Follow on Instagram
 
 If you are looking to find more **Star Wars toy photography** photos, then head over to Instagram and follow these people:…
 
