@@ -237,7 +237,7 @@ Why?! Well because: 28 feet × ¹⁄₆ = 336 inches × ¹⁄₆ = 56 inches. (O
 Companies that make _Star Wars action figures_ in the **¹⁄₆ scale** include:
 
 * [Hot Toys](http://www.hottoys.com.hk/), and
-* [Sideshow]().
+* [Sideshow](https://www.sideshowtoy.com/).
 
 _Star Wars action figures_ at the **¹⁄₆ scale** tend to be at a very high level of quality.
 And have the a fantastic level of detail.
