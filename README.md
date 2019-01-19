@@ -250,7 +250,7 @@ A single _Star Wars action figure_ in the **¹⁄₆ scale** can cost hundreds o
 
 Some are willing to spend that kind of money to get _Star Wars action figures_ in the **¹⁄₆ scale**.
 
-Some aren't (or can't) at stick to less expensive _Star Wars action figures_ at the _¹⁄₁₂ scale_.
+Some aren't (or can't) and stick to less expensive _Star Wars action figures_ at the _¹⁄₁₂ scale_.
 
 
 
