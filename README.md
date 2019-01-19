@@ -33,7 +33,7 @@ by [the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 
 
 
-![Star Wars toy photography of a First Order Stormtrooper](BsJjKqEnYWx.jpeg)
+![Star Wars toy photography of a First Order Stormtrooper](examples/BsJjKqEnYWx.jpeg)
 
 by [chewbacookie](https://www.instagram.com/chewbacookie/)
 ( [source](https://www.instagram.com/p/BsJjKqEnYWx/) )
