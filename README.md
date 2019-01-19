@@ -8,7 +8,7 @@ This article covers how to get started with **Star Wars toy photography**.
 
 ## Table of Contents
 
-* [Photographs And Photographer](#photographs-and-photographer)
+* [Photographs And Photographers](#photographs-and-photographers)
   * [Examples](#examples)
   * [Who To Follow on Instagram](#who-to-follow-on-instagram)
   * [Hashtags on Instagram](#hashtags-on-instagram)
