@@ -26,7 +26,7 @@ So maybe the best way to start talking about **Star Wars toy photography** is to
 
 
 
-![RED ROCKS...](BsejriAF4eT.jpeg)
+![RED ROCKS...](examples/BsejriAF4eT.jpeg)
 
 by [the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 ( [source](https://instagram.com/p/BsejriAF4eT/) )
