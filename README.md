@@ -12,8 +12,8 @@ This article covers how to get started with **Star Wars toy photography**.
   * [Examples](#examples)
   * [Who To Follow on Instagram](#who-to-follow-on-instagram)
   * [Hashtags on Instagram](#hashtags-on-instagram)
-  * [Realistic Toy Photography](realistic-toy-photography)
-  * [Movie Special Effects](movie-special-effects)
+  * [Realistic Toy Photography](#realistic-toy-photography)
+  * [Movie Special Effects](#movie-special-effects)
 
 
 ## Photographs And Photographers
