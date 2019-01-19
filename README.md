@@ -17,6 +17,7 @@ This article covers how to get started with **Star Wars toy photography**.
 * [Action Figures](#action-figures)
   * [Action Figure Scales](#action-figure-scales)
     * [1/6 Scale](#16-scale)
+    * [1/12 Scale](#112-scale)
 
 
 ## Photographs And Photographers
@@ -252,5 +253,32 @@ Some are willing to spend that kind of money to get _Star Wars action figures_ i
 
 Some aren't (or can't) and stick to less expensive _Star Wars action figures_ at the _¹⁄₁₂ scale_.
 
+
+#### 1/12 Scale
+
+At leat at the time of writting, the **¹⁄₁₂ scale** is much more popular (in terms of usage) for _Star Wars toy photography (than the _¹⁄₆ scale_)._
+
+The **¹⁄₁₂ scale** is also written as: **1/12 scale**.
+
+This is also sometimes called the **6 inch scale**.
+Which is also sometimes written: **6" scale**.
+
+Let's go over the same examples as before, to make things clear(er) around the **¹⁄₁₂ scale**.
+
+Again, let's imagine that a real human in a Stormtrooper costume is 6 feet tall.
+
+Then if we were to make an action figure of this 6 foot tall person at _¹⁄₁₂ scale_ (as companies such as S.H.Figuarts, Hasbro, Bandai, and Medicom do), then the action figure would be 6 inches tall.
+
+Why?! Well because: 6 feet × ¹⁄₁₂ = ¹⁄₂ foot = 6 inches.
+
+(That is where the alternate name “6 inch scale” comes from.)
+
+Let's do another example for the **¹⁄₁₂ scale**:
+
+An AT-ST is 28 feet tall.
+
+So then at the _¹⁄₁₂ scale_ the AT-ST would be 56 inches tall.
+
+Why?! Well because: 28 feet × ¹⁄₁₂ = 336 inches × ¹⁄₁₂ = 28 inches. (Or 2 foot 4 inches tall.)
 
 
