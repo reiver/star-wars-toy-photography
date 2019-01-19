@@ -78,7 +78,9 @@ This list is in alphabetical order. So no importance should be attributed to the
 Also, there are many other Instagram accounts out there for **Star Wars toy photography**.
 
 This list is not meant to be the exhaustive.
-It is just meant to get you started with **Star Wars toy photographers** to follow.
+**This list of is just meant to get you started with _Star Wars toy photographers_ to follow.**
+
+There are certainly many other **Star Wars toy photographers** to follow too.
 
 
 ## Hashtags on Instagram
