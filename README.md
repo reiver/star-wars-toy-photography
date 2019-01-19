@@ -151,6 +151,16 @@ Before computers became ubiquitous, _miniature models_ were often used for creat
 
 
 
+Like many other movies of past eras, the original 3 Star Wars movies made extensive use of _miniature models_. For example:…
+
+
+
+![Photo of AT-AT miniature model ](photos/fxhistorysw/at-at.jpeg)
+
+( [source](https://www.starwars.com/news/the-5-most-grueling-star-wars-visual-effects) )
+
+
+
 **In a lot of ways, **Star Wars toy photography** follows the tradition of the original 3 Star Wars movies' use of _miniature models_ for creating certain _special effects_.**
 
 Star Wars action figures are a type of _miniature model_ after all.
