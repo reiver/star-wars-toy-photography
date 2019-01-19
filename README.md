@@ -6,6 +6,13 @@ by [Charles Iliya Krempeaux](http://changelog.ca)
 This article covers how to get started with **Star Wars toy photography**.
 
 
+## Table of Contents
+
+* [Examples](#examples)
+* [Who To Follow on Instagram](#who-to-follow-on-instagram)
+* [Hashtags on Instagram](#hashtags-on-instagram)
+
+
 ## Examples
 
 There is a saying: _a picture is worth a thousand words_.
