@@ -8,12 +8,15 @@ This article covers how to get started with **Star Wars toy photography**.
 
 ## Table of Contents
 
-* [Examples](#examples)
-* [Who To Follow on Instagram](#who-to-follow-on-instagram)
-* [Hashtags on Instagram](#hashtags-on-instagram)
+* [Photographs And Photographer](#photographs-and-photographer)
+  * [Examples](#examples)
+  * [Who To Follow on Instagram](#who-to-follow-on-instagram)
+  * [Hashtags on Instagram](#hashtags-on-instagram)
 
 
-## Examples
+## Photographs And Photographers
+
+### Examples
 
 There is a saying: _a picture is worth a thousand words_.
 
@@ -55,7 +58,7 @@ by [@imperial_1211](https://www.instagram.com/imperial_1211/)
 ( [source](https://www.instagram.com/p/BsoFChHHvv7/) )
 
 
-## Who To Follow on Instagram
+### Who To Follow on Instagram
 
 If you are looking to find more **Star Wars toy photography** photos, then head over to Instagram and follow these people:…
 
@@ -83,7 +86,7 @@ This list is not meant to be the exhaustive.
 There are certainly many other **Star Wars toy photographers** to follow too.
 
 
-## Hashtags on Instagram
+### Hashtags on Instagram
 
 Many **Star Wars toy photographers** on Instagram tend to tag their **Star Wars toy photography** photos with certain hashtags.
 
