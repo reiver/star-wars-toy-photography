@@ -196,7 +196,7 @@ Start off getting one or two **Star Wars action figures** from this list:
 * Captain Phasm,
 * Clone Troopers,
 * Death Troopers,
-* First order Executor,
+* First Order Executor,
 * First Order Storm Troopers,
 * Hover Tank Commander,
 * Jango Fett,
