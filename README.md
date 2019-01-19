@@ -16,7 +16,7 @@ This article covers how to get started with **Star Wars toy photography**.
   * [Movie Special Effects](#movie-special-effects)
 * [Action Figures](#action-figures)
   * [Action Figure Scales](#action-figure-scales)
-    * [1/6 Scale](#1-6-scale)
+    * [1/6 Scale](#16-scale)
 
 
 ## Photographs And Photographers
