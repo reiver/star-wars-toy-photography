@@ -200,7 +200,7 @@ I.e., **¹⁄₆ scale** = **12 inch scale**.
 And **¹⁄₁₂ scale** = **6 inch scale**.
 
 Action figures in the **¹⁄₆ scale** (i.e., **12 inch scale**) are bigger.
-Tend to have the best detail.
+Tend to have a fantastic level detail.
 But are also very expensive for many people.
 
 Action figures in the **¹⁄₁₂ scale** (i.e., **6 inch scale**) are smaller.
@@ -240,6 +240,9 @@ Companies that make _Star Wars action figures_ in the **¹⁄₆ scale** include
 * [Sideshow]().
 
 _Star Wars action figures_ at the **¹⁄₆ scale** tend to be at a very high level of quality.
+And have the a fantastic level of detail.
+
+(Keep in mind that the higher the level of detail, the better close-ups photos of the action figure will look.)
 
 But _Star Wars action figures_ in the **¹⁄₆ scale** tend to cost **A LOT** more than, for example, _Star Wars action figures_ in the _¹⁄₁₂ scale_.
 
