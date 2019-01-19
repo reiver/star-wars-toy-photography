@@ -226,7 +226,7 @@ Why?! Well because: 6 feet × ¹⁄₆ = 1 foot = 12 inches.
 
 (That is where the alternate name “12 inch scale” comes from.)
 
-Let's do another example:
+Let's do another example for the **¹⁄₆ scale**:
 
 An AT-ST is 28 feet tall.
 
