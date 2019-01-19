@@ -14,6 +14,9 @@ This article covers how to get started with **Star Wars toy photography**.
   * [Hashtags on Instagram](#hashtags-on-instagram)
   * [Realistic Toy Photography](#realistic-toy-photography)
   * [Movie Special Effects](#movie-special-effects)
+* [Action Figures](#action-figures)
+  * [Action Figure Scales](#action-figure-scales)
+    * [1/6 Scale](#1-6-scale)
 
 
 ## Photographs And Photographers
@@ -169,6 +172,66 @@ Like many other movies of past eras, the original 3 Star Wars movies made extens
 
 **In a lot of ways, _Star Wars toy photography_ follows the tradition of the original 3 Star Wars movies' use of _miniature models_ for creating certain _special effects_.**
 
-Star Wars action figures are a type of _miniature model_ after all.
+Star Wars action figures and their vehicles are a type of _miniature model_ after all.
+
+
+## Action Figures
+
+After seeing and reading all of that, you may be interested in becoming a **Star Wars toy photographer** yourself.
+
+If you want to do that, then one thing you should probably do is get yourself some _Star Wars action figures_.
+
+There are a number of companies creating _realistic Star Wars action figures_ of various qualities, under various brands.
+
+But before getting into that, let's talk about **scale**.
+
+
+### Action Figure Scales
+
+_Star Wars action figures_ come in different sizes.
+
+We try to be precise about these difference sizes by talking about: **scale**.
+
+So, what do we mean by **scale**.
+
+#### 1/6 Scale
+
+One scale is known as the **¹⁄₆ scale**.
+Many people also write this as: **1/6 scale**.
+
+This is also sometimes called the **12 inch scale**.
+Which is also sometimes written: **12" scale**.
+
+Let's imagine that a real human in a Stormtrooper costume is 6 feet tall.
+
+Then if we were to make an action figure of this 6 foot tall person at _¹⁄₆ Scale_ (as companies such as Hot Toys, and Sideshow do), then the action figure would be 12 inches tall.
+
+Why?! Well because: 6 feet × ¹⁄₆ = 1 foot = 12 inches.
+
+(That is where the alternate name “12 inch scale” comes from.)
+
+Let's do another example:
+
+An AT-ST is 28 feet tall.
+
+So then at the _¹⁄₆ scale_ the AT-ST would be 56 inches tall.
+
+Why?! Well because: 28 feet × ¹⁄₆ = 336 inches × ¹⁄₆ = 56 inches. (Or 4 foot 8 inches tall.)
+
+Companies that make _Star Wars action figures_ in the **¹⁄₆ scale** include:
+
+* [Hot Toys](http://www.hottoys.com.hk/), and
+* [Sideshow]().
+
+_Star Wars action figures_ at the **¹⁄₆ scale** tend to be at a very high level of quality.
+
+But _Star Wars action figures_ in the **¹⁄₆ scale** tend to cost **A LOT** more than, for example, _Star Wars action figures_ in the _¹⁄₁₂ scale_.
+
+A single _Star Wars action figure_ in the **¹⁄₆ scale** can cost hundreds of dollars.
+
+Some are willing to spend that kind of money to get _Star Wars action figures_ in the **¹⁄₆ scale**.
+
+Some aren't (or can't) at stick to less expensive _Star Wars action figures_ at the _¹⁄₁₂ scale_.
+
 
 
