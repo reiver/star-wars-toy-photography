@@ -76,14 +76,19 @@ And Instagram even lets you _follow_ hashtags.
 
 But anyway, these are some **Star Wars toy photography** related hashtags on Instagram:
 
+* [#BandaiStarWars](https://www.instagram.com/explore/tags/bandaistarwars/)
 * [#HasbroStarWars](https://www.instagram.com/explore/tags/hasbrostarwars/)
 * [#HotToysStarWars](https://www.instagram.com/explore/tags/hottoysstarwars/)
+* [#MafexStarWars](https://www.instagram.com/explore/tags/mafexstarwars/)
 * [#SHFiguartsStarWars](https://www.instagram.com/explore/tags/shfiguartsstarwars/)
 * [#SideshowStarWars](https://www.instagram.com/explore/tags/sideshowstarwars/)
 * [#StarWarsActionFigures](https://www.instagram.com/explore/tags/starwarsactionfigures/)
 * [#StarWarsBlackSeries](https://www.instagram.com/explore/tags/starwarsblackseries/)
+* [#StarWarsBlackSeries6Inch](https://www.instagram.com/explore/tags/starwarsblackseries6inch/)
 * [#StarWarsFigures](https://www.instagram.com/explore/tags/starwarsfigures/)
+* [@StarWarsTheBlackSeries](https://www.instagram.com/explore/tags/starwarstheblackseries/)
 * [#StarWarsPhotography](https://www.instagram.com/explore/tags/starwarsphotography/)
 * [#StarWarsToyPix](https://www.instagram.com/explore/tags/starwarstoypix/)
 * [#StarWarsToys](https://www.instagram.com/explore/tags/starwarstoys/)
 * [#TBSFF](https://www.instagram.com/explore/tags/tbsff/)
+* [#TheBlackSeries](https://www.instagram.com/explore/tags/theblackseries/)
