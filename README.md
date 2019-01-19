@@ -167,7 +167,7 @@ Like many other movies of past eras, the original 3 Star Wars movies made extens
 
 
 
-**In a lot of ways, **Star Wars toy photography** follows the tradition of the original 3 Star Wars movies' use of _miniature models_ for creating certain _special effects_.**
+**In a lot of ways, _Star Wars toy photography_ follows the tradition of the original 3 Star Wars movies' use of _miniature models_ for creating certain _special effects_.**
 
 Star Wars action figures are a type of _miniature model_ after all.
 
