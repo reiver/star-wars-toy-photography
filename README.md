@@ -220,7 +220,7 @@ Which is also sometimes written: **12" scale**.
 
 Let's imagine that a real human in a Stormtrooper costume is 6 feet tall.
 
-Then if we were to make an action figure of this 6 foot tall person at _¹⁄₆ Scale_ (as companies such as Hot Toys, and Sideshow do), then the action figure would be 12 inches tall.
+Then if we were to make an action figure of this 6 foot tall person at _¹⁄₆ scale_ (as companies such as Hot Toys, and Sideshow do), then the action figure would be 12 inches tall.
 
 Why?! Well because: 6 feet × ¹⁄₆ = 1 foot = 12 inches.
 
