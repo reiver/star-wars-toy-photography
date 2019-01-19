@@ -133,13 +133,26 @@ Examples of _realistic Star Wars toy photography_ was shown in the [Examples](#e
 
 ### Movie Special Effects
 
-The _realistic Star Wars toy photography_ form has similarities to the _miniature models_ used for creating certain _special effects_ in the original 3 Star Wars movies.
+The _realistic Star Wars toy photography_ form has similarities to the **miniature models** used for creating certain **special effects** in the original 3 Star Wars movies.
 
-Before computers became ubiquitous, _miniature models_ were often used for creating certain kinds of _special effects_ in movies.
+Before computers became ubiquitous, _miniature models_ were often used for creating certain kinds of _special effects_ in movies. For example:…
 
-Like many other movies of past eras, the original 3 Star Wars movies made extensive use of _miniature models_.
+
+
+![Gozilla](photos/fxhistory/godzilla.jpeg)
+
+( [source](https://www.inverse.com/article/22234-special-effects-in-godzilla-movies-history) )
+
+
+
+![Howard and Theodore Lydecker's miniature train](photos/fxhistory/lydecker_miniature_train.jpeg)
+
+( [source](http://nzpetesmatteshot.blogspot.com/2010/09/big-boys-toys-howard-and-theodore.html) )
+
+
 
 **In a lot of ways, **Star Wars toy photography** follows the tradition of the original 3 Star Wars movies' use of _miniature models_ for creating certain _special effects_.**
 
 Star Wars action figures are a type of _miniature model_ after all.
+
 
