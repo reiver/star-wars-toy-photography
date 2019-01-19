@@ -26,35 +26,35 @@ So maybe the best way to start talking about **Star Wars toy photography** is to
 
 
 
-![RED ROCKS...](examples/BsejriAF4eT.jpeg)
+![RED ROCKS...](photos/examples/BsejriAF4eT.jpeg)
 
 by [the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 ( [source](https://instagram.com/p/BsejriAF4eT/) )
 
 
 
-![Star Wars toy photography of a First Order Stormtrooper](examples/BsJjKqEnYWx.jpeg)
+![Star Wars toy photography of a First Order Stormtrooper](photos/examples/BsJjKqEnYWx.jpeg)
 
 by [chewbacookie](https://www.instagram.com/chewbacookie/)
 ( [source](https://www.instagram.com/p/BsJjKqEnYWx/) )
 
 
 
-![Star Wars toy photography of a Hover Tank](examples/BpCki6_H7lj.jpeg)
+![Star Wars toy photography of a Hover Tank](photos/examples/BpCki6_H7lj.jpeg)
 
 by [geek.turtle](https://www.instagram.com/geek.turtle/)
 ( [source](https://www.instagram.com/p/BpCki6_H7lj/) )
 
 
 
-![Star Wars toy photography of a Death Trooper](examples/BsuOrHgFolc.jpeg)
+![Star Wars toy photography of a Death Trooper](photos/examples/BsuOrHgFolc.jpeg)
 
 by [willcandytoyphotography](https://www.instagram.com/willcandytoyphotography/)
 ( [source](https://www.instagram.com/p/BsuOrHgFolc/) )
 
 
 
-![Fallen Stormtroopers](examples/BsoFChHHvv7.jpeg)
+![Fallen Stormtroopers](photos/examples/BsoFChHHvv7.jpeg)
 
 by [@imperial_1211](https://www.instagram.com/imperial_1211/)
 ( [source](https://www.instagram.com/p/BsoFChHHvv7/) )
