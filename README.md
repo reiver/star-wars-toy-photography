@@ -12,6 +12,8 @@ This article covers how to get started with **Star Wars toy photography**.
   * [Examples](#examples)
   * [Who To Follow on Instagram](#who-to-follow-on-instagram)
   * [Hashtags on Instagram](#hashtags-on-instagram)
+  * [Realistic Toy Photography](realistic-toy-photography)
+  * [Movie Special Effects](movie-special-effects)
 
 
 ## Photographs And Photographers
@@ -112,3 +114,30 @@ But anyway, these are some **Star Wars toy photography** related hashtags on Ins
 * [#StarWarsToys](https://www.instagram.com/explore/tags/starwarstoys/)
 * [#TBSFF](https://www.instagram.com/explore/tags/tbsff/)
 * [#TheBlackSeries](https://www.instagram.com/explore/tags/theblackseries/)
+
+
+### Realistic Toy Photography
+
+**Star Wars toy photography** comes in different forms.
+
+One of those forms is the _realistic toy photography_ form.
+
+I.e., where when you look at the photograph, you cannot immediately tell whether it is a photo of real person or people in Star Wars costumes (either in a Star Wars film, or in cosplay), or a photo of toys.
+
+Examples of _realistic Star Wars toy photography_ was shown in the [Examples](#examples) section.
+
+**This article is going to focus on _realistic Star Wars toy photography_, as shown in the [Examples](#examples) section.**
+
+
+### Movie Special Effects
+
+The _realistic Star Wars toy photography_ form has similarities to the _miniature models_ used for creating certain _special effects_ in the original 3 Star Wars movies.
+
+Before computers became ubiquitous, _miniature models_ were often used for creating certain kinds of _special effects_ in movies.
+
+Like many other movies of past eras, the original 3 Star Wars movies made extensive use of _miniature models_.
+
+**In a lot of ways, **Star Wars toy photography** follows the tradition of the original 3 Star Wars movies' use of _miniature models_ for creating certain _special effects_.**
+
+Star Wars action figures are a type of _miniature model_.
+
