@@ -250,7 +250,7 @@ Start with **¹⁄₁₂ scale** of **Star Wars action figures**.
 If you want to keep the price as low as possible, then go for the **6 inch scale** version of the **Hasbro Star Wars The Black Series** line of **Star Wars action figures**.
 
 (WARNING: **Hasbro Star Wars The Black Series** comes in 2 different sizes. The larger **6 inch scale**. And the smaller _3.75 inch scale_.
-If you are going to use the _Hasbro Star Wars The Black Series_ line for **Star Wars toy photography**, then I would recommend the _6 inch scale_ version (over the _3.75 inch scale_ version).
+If you are going to use the _Hasbro Star Wars The Black Series_ line for **Star Wars toy photography**, then I would recommend the _6 inch scale_ version (over the _3.75 inch scale_ version)).
 
 (You can also mix the _6 inch scale_ version of the _Hasbro Star Wars The Black Series_ line, with the _S.H.Figuarts Star Wars_ line which is also at the _6 inch scale_.)
 
