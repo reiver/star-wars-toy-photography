@@ -366,6 +366,21 @@ So then at the _¹⁄₁₂ scale_ the AT-ST would be 28 inches tall.
 
 Why?! Well because: 28 feet × ¹⁄₁₂ = 336 inches × ¹⁄₁₂ = 28 inches. (Or 2 foot 4 inches tall.)
 
+Companies that make _Star Wars action figures_ in the **¹⁄₁₂ scale** include:
 
+* [Bandai](http://www.bandai.com/),
+  * S.H.Figuarts,
+  * Model Kit,
+* [Medicom](http://www.medicomtoy.co.jp/),
+  * Mafex,
+* [Hasbro](https://hasbro.com/),
+  * The Black Series
 
+_Star Wars action figures_ at the **¹⁄₁₂ scale** tend to have OK (although not the best) quality.
+And have OK (although not the best) level of detail.
 
+(Keep in mind that the higher the level of detail, the better close-ups photos of the action figure will look.)
+
+But _Star Wars action figures_ in the **¹⁄₁₂ scale** tend to be the more affordable option than, for example, _Star Wars action figures_ in the _¹⁄₆ scale_.
+
+A single _Star Wars action figure_ in the **¹⁄₁₂ scale** will probably cost between $10 to $100.
