@@ -331,9 +331,12 @@ But _Star Wars action figures_ in the **¹⁄₆ scale** tend to cost **A LOT** 
 
 A single _Star Wars action figure_ in the **¹⁄₆ scale** can cost hundreds of dollars.
 
-Some are willing to spend that kind of money to get _Star Wars action figures_ in the **¹⁄₆ scale**.
+Some people are willing to spend that kind of money to get _Star Wars action figures_ in the **¹⁄₆ scale**.
 
-Some aren't (or can't) and stick to less expensive _Star Wars action figures_ at the _¹⁄₁₂ scale_.
+Some aren't willing (or can't) and stick to less expensive _Star Wars action figures_ at the _¹⁄₁₂ scale_.
+
+(FWIW, I do have some **¹⁄₆ scale** _Star Wars action figures_ from both _Hot Toys_, and _Sideshow_.
+But I have A LOT more _Star Wars action figures_ at the _¹⁄₁₂ scale_ _from S.H.Figuarts_, and _Hasbro The Black Series_.)
 
 
 #### 1/12 Scale
