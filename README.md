@@ -198,20 +198,24 @@ Start off getting one or two **Star Wars action figures** from this list:
 
 * Boba Fett,
 * Captain Phasm,
-* Clone Troopers,
-* Death Troopers,
+* Clone Trooper,
+* Death Trooper,
 * First Order Executor,
-* First Order Storm Troopers,
+* First Order Riot Control Storm Trooper,
+* First Order Storm Trooper,
+* First Order Storm Trooper Heavy Gunner,
 * Hover Tank Commander,
 * Jango Fett,
-* Patrol Troopers,
-* Pretorian Guard,
-* Range Troopers,
-* Scout Troopers,
-* Shadow Troopers,
-* Shore Troopers,
-* Snow Troopers, and
-* Storm Troopers.
+* Mimban Storm Trooper,
+* Patrol Trooper,
+* Praetorian Guard,
+* Range Trooper,
+* Sand Trooper,
+* Scout Trooper,
+* Shadow Trooper,
+* Shore Trooper,
+* Snow Trooper,
+* Storm Trooper.
 
 **Obviously you do NOT need to buy all of these _Star Wars action figures_ to get started with _Star Wars toy photography_.**
 
