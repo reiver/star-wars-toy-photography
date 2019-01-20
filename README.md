@@ -7,7 +7,7 @@ This article covers how to get started with **Star Wars toy photography**.
 Including both:…
 
 * where to find **Star Wars toy photography** photos, and
-* how to become a **Star Wars toy photographer**, and create your own **Star Wars toy photography** photo.
+* how to become a **Star Wars toy photographer**, and create your own **Star Wars toy photography** photos.
 
 
 ## Table of Contents
