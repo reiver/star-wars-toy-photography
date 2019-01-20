@@ -23,6 +23,7 @@ Including both:…
   * [Action Figure Scales](#action-figure-scales)
     * [1/6 Scale](#16-scale)
     * [1/12 Scale](#112-scale)
+* [First Photographs](#first-photographs)
 
 
 ## Photographs And Photographers
@@ -384,3 +385,33 @@ And have OK (although not the best) level of detail.
 But _Star Wars action figures_ in the **¹⁄₁₂ scale** tend to be the more affordable option than, for example, _Star Wars action figures_ in the _¹⁄₆ scale_.
 
 A single _Star Wars action figure_ in the **¹⁄₁₂ scale** will probably cost between $10 to $100.
+
+
+## First Photographs
+
+Now that you have one or two _Star Wars action figures_ you are ready to take your first photos.
+
+Here is the thing, your first set of photos probably won't be very good 🙂
+
+Or at the very least, they probably won't be as good as the _Star Wars toy photography_ photos that you have seen others create that you feel are amazing.
+
+But that's OK 🙂
+
+You get better at _Star Wars toy photography_ by doing it.
+I.e., you learn by doing.
+
+FWIW, here is one of my first attempts at _Star Wars toy photography_ photos:
+
+[Latent Imperium #3](photos/examples/latentimperium_3.jpeg)
+
+It is OK. But not great. It doesn't make me think “wow”, in the same way the some of the photos I've seen from other _Star Wars toy photographers_.
+
+But each time I take a photo, I try to figure out _why_ it doesn't look as good as other photos I've seen, and try to use that to improve my next photo.
+
+I don't think I am the only person who has done this.
+
+If you look at the first dozen photos of some of the _Star Wars toy photographers_ on_ Instagram with, what are today are, amazing _Star Wars toy photography_, their first photographs often weren't very good either 🙂
+
+But they were able to produce amazing works over time.
+
+
