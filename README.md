@@ -402,7 +402,7 @@ I.e., you learn by doing.
 
 FWIW, here is one of my first attempts at _Star Wars toy photography_ photos:
 
-[Latent Imperium #3](photos/examples/latentimperium_3.jpeg)
+![Latent Imperium #3](photos/examples/latentimperium_3.jpeg)
 
 It is OK. But not great. It doesn't make me think “wow”, in the same way the some of the photos I've seen from other _Star Wars toy photographers_.
 
