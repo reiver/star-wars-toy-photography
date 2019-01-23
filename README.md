@@ -454,7 +454,7 @@ by [the_imperial_grunt](https://www.instagram.com/the_imperial_grunt/)
 
 
 
-![Mimban firefight💥💥💥](photos/examples/Bs9isFfH-zx.jpeg)
+![Ahsoka Tano versus Battle Droid](photos/examples/Bs9isFfH-zx.jpeg)
 
 by [ilmanakbar.sw](https://www.instagram.com/ilmanakbar.sw/)
 ( [source](https://www.instagram.com/p/Bs9isFfH-zx/) )
