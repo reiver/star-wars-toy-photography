@@ -41,28 +41,28 @@ So maybe the best way to start talking about **Star Wars toy photography** is to
 
 ![RED ROCKS...](photos/examples/BsejriAF4eT.jpeg)
 
-by [the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
+by [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 ( [source](https://instagram.com/p/BsejriAF4eT/) )
 
 
 
 ![Star Wars toy photography of a First Order Stormtrooper](photos/examples/BsJjKqEnYWx.jpeg)
 
-by [chewbacookie](https://www.instagram.com/chewbacookie/)
+by [@chewbacookie](https://www.instagram.com/chewbacookie/)
 ( [source](https://www.instagram.com/p/BsJjKqEnYWx/) )
 
 
 
 ![Star Wars toy photography of a Hover Tank](photos/examples/BpCki6_H7lj.jpeg)
 
-by [geek.turtle](https://www.instagram.com/geek.turtle/)
+by [@geek.turtle](https://www.instagram.com/geek.turtle/)
 ( [source](https://www.instagram.com/p/BpCki6_H7lj/) )
 
 
 
 ![Star Wars toy photography of a Death Trooper](photos/examples/BsuOrHgFolc.jpeg)
 
-by [willcandytoyphotography](https://www.instagram.com/willcandytoyphotography/)
+by [@willcandytoyphotography](https://www.instagram.com/willcandytoyphotography/)
 ( [source](https://www.instagram.com/p/BsuOrHgFolc/) )
 
 
@@ -443,35 +443,35 @@ You can see that in use with the following photos:
 
 ![Mimban firefight💥💥💥](photos/examples/BomtLy3Fqqe.jpeg)
 
-by [the_imperial_grunt](https://www.instagram.com/the_imperial_grunt/)
+by [@the_imperial_grunt](https://www.instagram.com/the_imperial_grunt/)
 ( [source](https://www.instagram.com/p/BomtLy3Fqqe/) )
 
 
 
 ![Ahsoka Tano versus Battle Droid](photos/examples/Bs9isFfH-zx.jpeg)
 
-by [ilmanakbar.sw](https://www.instagram.com/ilmanakbar.sw/)
+by [@ilmanakbar.sw](https://www.instagram.com/ilmanakbar.sw/)
 ( [source](https://www.instagram.com/p/Bs9isFfH-zx/) )
 
 
 
 ![That feeling when you miss every shot](photos/examples/BsQ2QgJnUuM.jpeg)
 
-by [rogue_studios](https://www.instagram.com/rogue_studios/)
+by [@rogue_studios](https://www.instagram.com/rogue_studios/)
 ( [source](https://www.instagram.com/p/BsQ2QgJnUuM/) )
 
 
 
 ![Stormtroopers. 2 of 3](photos/examples/BfcYFR3DozG.jpeg)
 
-by [fallenfind_](https://www.instagram.com/fallenfind_/)
+by [@fallenfind_](https://www.instagram.com/fallenfind_/)
 ( [source](https://www.instagram.com/p/BfcYFR3DozG/) )
 
 
 
 ![STORMING OUTTA THERE...](photos/examples/Bs4zlq_ljpG.jpeg)
 
-by [the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
+by [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 ( [source](https://www.instagram.com/p/Bs4zlq_ljpG/) )
 
 
@@ -497,14 +497,14 @@ It is easier just to show you what these look like, so here are some examples:
 
 ![Hot Toys Sixth Scale Figure Star Wars First Order Storm Troopers Movie Masterpiece Series](photos/examples/latentimperium_5.jpeg)
 
-by [latentimperium](https://www.instagram.com/latentimperium/)
+by [@latentimperium](https://www.instagram.com/latentimperium/)
 ( [source](https://www.instagram.com/p/BsgkGpgHMCy/) )
 
 
 
 ![Hot Toys Star Wars BB-8 1/6 Scale](photos/examples/latentimperium_12.jpeg)
 
-by [latentimperium](https://www.instagram.com/latentimperium/)
+by [@latentimperium](https://www.instagram.com/latentimperium/)
 ( [source](https://www.instagram.com/p/Bs9ezirn0LF/) )
 
 
@@ -528,12 +528,12 @@ You can see that in use with the following photos:
 
 ![Oppress... ](photos/examples/BstUETSH_t-.jpeg)
 
-by [chewbacookie](https://www.instagram.com/chewbacookie/)
+by [@chewbacookie](https://www.instagram.com/chewbacookie/)
 ( [source](https://www.instagram.com/p/BstUETSH_t-/) )
 
 
 
 ![Assault](photos/examples/BsrglRdnUB_.jpeg)
 
-by [tx0666](https://www.instagram.com/tx0666/)
+by [@tx0666](https://www.instagram.com/tx0666/)
 ( [source](https://www.instagram.com/p/BsrglRdnUB_/) )
