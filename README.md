@@ -462,5 +462,12 @@ by [ilmanakbar.sw](https://www.instagram.com/ilmanakbar.sw/)
 
 
 
+![That feeling when you miss every shot](photos/examples/BsQ2QgJnUuM.jpeg)
+
+by [rogue_studios](https://www.instagram.com/rogue_studios/)
+( [source](https://www.instagram.com/p/BsQ2QgJnUuM/) )
+
+
+
 
 
