@@ -74,6 +74,13 @@ by [@willcandytoyphotography](https://www.instagram.com/willcandytoyphotography/
 by [@imperial_1211](https://www.instagram.com/imperial_1211/)
 ( [source](https://www.instagram.com/p/BsoFChHHvv7/) )
 
+I think the name **“toy photography”** (in _Star Wars toy photography_) confuses some people.
+
+I think the name **“toy photography”** gives people (who have never seen _Star Wars toy photography_ before) the expectation that the _Star Wars action figures_ will look like kids' toys.
+
+I don't think they expect _Star Wars toy photography_ to use _Star Wars action figures_ as a _miniature models_ in the same way Hollywood style [movie special effects](#movie-special-effects) used _miniature models_ to create realistic scenes, where it wasn't obvious to the viewer that _miniature models_ were used (instead of real people).
+
+
 
 ### Who To Follow on Instagram
 
