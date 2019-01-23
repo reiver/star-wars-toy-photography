@@ -415,7 +415,7 @@ But each time I take a photo, I try to figure out _why_ it doesn't look as good 
 
 I don't think I am the only person who has done this.
 
-If you look at the first dozen photos of some of the _Star Wars toy photographers_ on_ Instagram with, what are today are, amazing _Star Wars toy photography_, their first photographs often weren't very good either 🙂
+If you look at the first dozen photos of some of the _Star Wars toy photographers_ on Instagram with, what are today are, amazing _Star Wars toy photography_, their first photographs often weren't very good either 🙂
 
 But they were able to produce amazing works over time.
 
