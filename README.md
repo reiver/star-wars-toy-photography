@@ -150,9 +150,9 @@ One of those forms is the _realistic toy photography_ form.
 
 ### Realistic Toy Photography
 
-For _Star Wars toy photography_, the _realistic toy photography_ form is where when you look at the photograph, you cannot immediately tell whether it is a photo of real person or people in Star Wars costumes (either in a Star Wars film, or in cosplay), or a photo of toys.
+For _Star Wars toy photography_, the _realistic toy photography_ form is where when you look at the photograph, you cannot immediately tell whether it is a photo of real person or people in Star Wars costumes (either in a Star Wars film, or in cosplay), or a photo of _action figures_, their _vehicles_, or scale models.
 
-Examples of _realistic Star Wars toy photography_ was shown in the [Examples](#examples) section.
+Examples of _realistic Star Wars toy photography_ were shown in the [Examples](#examples) section. And there are more examples throughout the rest of this document.
 
 (Another form of **Star Wars toy photography** is where the photographer wants the Star Wars action figure to look like a small toy in the photo.)
 
