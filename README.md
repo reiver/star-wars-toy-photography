@@ -271,7 +271,10 @@ If you are going to use the _Hasbro Star Wars The Black Series_ line for **Star 
 
 (You can also mix the _6 inch scale_ version of the _Hasbro Star Wars The Black Series_ line, with the _S.H.Figuarts Star Wars_ line which is also at the _6 inch scale_.)
 
-If you are OK with paying a bit more, to get better higher level of detail, and better posability in your _Star Wars action figures_, then go for **S.H.Figuarts Star Wars** action figures.
+If you are OK with paying a bit more, to get a better level of detail, and better posability in your _Star Wars action figures_, then go for **S.H.Figuarts Star Wars** action figures.
+
+The _Hasbro Black Series_ action figures are less expensive than the _S.H.Figuarts_.
+But the _S.H.Figuarts_ tend to be more posable, and have better details than the _Hasbro Black Series_ action figures.
 
 (If you are curious, I have _both_ **S.H.Figuarts Star Wars** action figures, and **Hasbro Star Wars The Black Series** action figures.)
 
