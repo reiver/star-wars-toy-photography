@@ -22,7 +22,7 @@ Including both:…
 * [Action Figures](#action-figures)
   * [Action Figure Recommendations](#action-figure-recommendations)
   * [Action Figure Scales](#action-figure-scales)
-    * [1/6 Scale](#16-scale)
+    * [1/6 Scale (12 Inch Scale)](#16-scale-12-inch-scale)
     * [1/12 Scale](#112-scale)
 * [First Photographs](#first-photographs)
 * [Posing](#posing)
@@ -303,7 +303,7 @@ But are a more affordable option for many people.
 So, what do we really mean by **scale**.…
 
 
-#### 1/6 Scale
+#### 1/6 Scale (12 Inch Scale)
 
 One scale is known as the **¹⁄₆ scale**.
 Many people also write this as: **1/6 scale**.
