@@ -27,6 +27,7 @@ Including both:…
     * [1/12 Scale (6 Inch Scale)](#112-scale-6-inch-scale)
 * [First Photographs](#first-photographs)
 * [Posing](#posing)
+  * [Posing With Wires](#posing-with-wires)
 * [Lightbox](#lightbox)
 * [Dioramas](#dioramas)
 
@@ -555,6 +556,16 @@ And it is one component of creating an amazing photograph.
 The poses can come from your imagination.
 
 But you could also try reproducing poses you have seen in the Star Wars movies, or even other movies, or photograps.
+
+### Posing With Wires
+
+Sometimes you can pose the figure, and have it stand and balance itself.
+
+Other times you need help to keep the _Star Wars action figure_ standing, or even stay in the air.
+
+This _help_ often comes in the form of wires.
+
+(The wires are later edited out of the photo.)
 
 
 ## Lightbox
