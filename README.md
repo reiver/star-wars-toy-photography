@@ -384,7 +384,7 @@ In fact, the _Star Wars toy photography_ I have seen with Disney's _10 inch scal
 
 If you want to pick up the _Death Trooper_ from this Disney line of _Star Wars action figure_ it comes under a name that is something like: **Star Wars: Elite Series: Imperial Death Trooper: Premium Action Figure**.
 
-Here are some _Stsr Wars toy photography_photos of the **10" scale Disney Star Wars Elite Series Imperial Death Trooper Premium Action Figure**:…
+Here are some _Star Wars toy photography_ photos of the **10" scale Disney Star Wars Elite Series Imperial Death Trooper Premium Action Figure**:…
 
 
 
