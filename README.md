@@ -13,7 +13,7 @@ Including both:…
 where it often looks like the characters in the photo are real people in Star Wars costumes (rather than _Star Wars action figures_),
 and the scene looks like it could be from a _Star Wars movie_, or _cosplay enactment_.
 
-This is a lot like how many special effects were done in the original 3 Star Wars movies.
+This is a lot like how many forms of cinematic _special effects_ were done in the original 3 Star Wars movies (back before computers became ubiquitous, and computer-generated _special effects_ became common in the movie industry).
 
 
 ## Table of Contents
