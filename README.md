@@ -24,6 +24,7 @@ Including both:…
     * [1/6 Scale](#16-scale)
     * [1/12 Scale](#112-scale)
 * [First Photographs](#first-photographs)
+* [Posing](#posing)
 * [Dioramas](#dioramas)
 
 
@@ -419,25 +420,16 @@ If you look at the first dozen photos of some of the _Star Wars toy photographer
 But they were able to produce amazing works over time.
 
 
-## Dioramas
-
-One way of improving your photos is to make use of a **diorama**.
-
-You can see that in use with the following photos:
 
 
 
-![Oppress... ](photos/examples/BstUETSH_t-.jpeg)
-
-by [chewbacookie](https://www.instagram.com/chewbacookie/)
-( [source](https://www.instagram.com/p/BstUETSH_t-/) )
 
 
 
-![Assault](photos/examples/BsrglRdnUB_.jpeg)
 
-by [tx0666](https://www.instagram.com/tx0666/)
-( [source](https://www.instagram.com/p/BsrglRdnUB_/) )
+
+
+
 
 
 ## Posing
@@ -474,3 +466,23 @@ by [rogue_studios](https://www.instagram.com/rogue_studios/)
 by [fallenfind_](https://www.instagram.com/fallenfind_/)
 ( [source](https://www.instagram.com/p/BfcYFR3DozG/) )
 
+
+## Dioramas
+
+One way of improving your photos is to make use of a **diorama**.
+
+You can see that in use with the following photos:
+
+
+
+![Oppress... ](photos/examples/BstUETSH_t-.jpeg)
+
+by [chewbacookie](https://www.instagram.com/chewbacookie/)
+( [source](https://www.instagram.com/p/BstUETSH_t-/) )
+
+
+
+![Assault](photos/examples/BsrglRdnUB_.jpeg)
+
+by [tx0666](https://www.instagram.com/tx0666/)
+( [source](https://www.instagram.com/p/BsrglRdnUB_/) )
