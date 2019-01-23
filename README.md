@@ -9,9 +9,11 @@ Including both:…
 * where to find **Star Wars toy photography** photos, and
 * how to become a **Star Wars toy photographer**, and create your own **Star Wars toy photography** photos.
 
-**Star Wars toy photography** (which is a bit of a misnormer) uses **Star Wars action figures** as **miniature models** to create _realistic scenes_,
+**Star Wars toy photography** (which is a bit of a misnormer) uses **Star Wars action figures**, their vehicles, and scale models as **miniature models** to create _realistic scenes_,
 where it often looks like the characters in the photo are real people in Star Wars costumes (rather than _Star Wars action figures_),
 and the scene looks like it could be from a _Star Wars movie_, or _cosplay enactment_.
+
+This is a lot like how many special effects were done in the original 3 Star Wars movies.
 
 
 ## Table of Contents
