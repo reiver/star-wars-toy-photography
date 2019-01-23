@@ -25,6 +25,7 @@ Including both:…
     * [1/12 Scale](#112-scale)
 * [First Photographs](#first-photographs)
 * [Posing](#posing)
+* [Lightbox](#lightbox)
 * [Dioramas](#dioramas)
 
 
@@ -486,6 +487,35 @@ The poses can come from your imagination.
 But you could also try reproducing poses you have seen in the Star Wars movies, or even other movies, or photograps.
 
 
+## Lightbox
+
+**Lightboxes** are used for creating certain kinds of _product shots_.
+
+It is easier just to show you what these look like, so here are some examples:
+
+
+
+![Hot Toys Sixth Scale Figure Star Wars First Order Storm Troopers Movie Masterpiece Series](photos/examples/latentimperium_5.jpeg)
+
+by [latentimperium](https://www.instagram.com/latentimperium/)
+( [source](https://www.instagram.com/p/BsgkGpgHMCy/) )
+
+
+
+![Hot Toys Star Wars BB-8 1/6 Scale](photos/examples/latentimperium_12.jpeg)
+
+by [latentimperium](https://www.instagram.com/latentimperium/)
+( [source](https://www.instagram.com/p/Bs9ezirn0LF/) )
+
+
+
+Note that there really isn't a floor or background in these shots.
+And that there are either _no_ or _minimal_ shadows.
+
+These types of shots are often created using sometimes called a **lightbox**.
+
+You can buy a lightbox.
+Or you can make your own lightbox.
 
 
 ## Dioramas
