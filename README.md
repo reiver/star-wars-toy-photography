@@ -419,7 +419,7 @@ But they were able to produce amazing works over time.
 
 ## Dioramas
 
-One way of improving your photos is to create a **diorama**.
+One way of improving your photos is to make use of a **diorama**.
 
 You can see that in use with the following photos:
 
