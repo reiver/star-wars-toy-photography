@@ -420,9 +420,19 @@ But they were able to produce amazing works over time.
 
 One way of improving your photos is to create a **diorama**.
 
-You can see that in use with this photo:
+You can see that in use with the following photos:
+
+
 
 ![Oppress... ](photos/examples/BstUETSH_t-.jpeg)
 
 by [chewbacookie](https://www.instagram.com/chewbacookie/)
 ( [source](https://www.instagram.com/p/BstUETSH_t-/) )
+
+
+
+![Assault](photos/examples/BsrglRdnUB_.jpeg)
+
+by [tx0666](https://www.instagram.com/tx0666/)
+( [source](https://www.instagram.com/p/BsrglRdnUB_/) )
+
