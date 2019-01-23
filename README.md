@@ -23,7 +23,7 @@ Including both:…
   * [Action Figure Recommendations](#action-figure-recommendations)
   * [Action Figure Scales](#action-figure-scales)
     * [1/6 Scale (12 Inch Scale)](#16-scale-12-inch-scale)
-    * [1/12 Scale](#112-scale)
+    * [1/12 Scale (6 Inch Scale)](#112-scale-6-inch-scale)
 * [First Photographs](#first-photographs)
 * [Posing](#posing)
 * [Lightbox](#lightbox)
@@ -349,7 +349,7 @@ Some aren't willing (or can't) and stick to less expensive _Star Wars action fig
 But I have A LOT more _Star Wars action figures_ at the _¹⁄₁₂ scale_ _from S.H.Figuarts_, and _Hasbro The Black Series_.)
 
 
-#### 1/12 Scale
+#### 1/12 Scale (6 Inch Scale)
 
 At least at the time of writting, the **¹⁄₁₂ scale** is much more popular (in terms of usage) for _Star Wars toy photography (than the _¹⁄₆ scale_)._
 
