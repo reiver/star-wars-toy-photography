@@ -21,6 +21,7 @@ Including both:…
   * [Movie Special Effects](#movie-special-effects)
 * [Action Figures](#action-figures)
   * [Action Figure Recommendations](#action-figure-recommendations)
+    * [My First Action Figure](#my-first-action-figure)
   * [Action Figure Scales](#action-figure-scales)
     * [1/6 Scale (12 Inch Scale)](#16-scale-12-inch-scale)
     * [10 Inch Scale](#10-inch-scale)
@@ -279,6 +280,14 @@ But the _S.H.Figuarts_ tend to be more posable, and have better details than the
 (If you are curious, I have _both_ **S.H.Figuarts Star Wars** action figures, and **Hasbro Star Wars The Black Series** action figures.)
 
 
+#### My First Action Figure
+
+If you are curious, I started off with an S.H.Figuarts _Death Trooper_.
+
+Knowing what I know now I'd say that was probably a good choice for a first Star Wars action figure, as S.H.Figuarts tend to be more _posable_ than the alternatives in the ¹⁄₁₂ scale — in the 6 inch scale;
+and often have a higher level of detail than the alternative brands in the ¹⁄₁₂ scale — in the 6 inch scale.
+
+But my collection at the ¹⁄₁₂ scale -- at the 6 inch scale -- is made up of both _S.H.Figuarts Star Wars_ action figures, and _Hasbro Star Wars The Black Series_ action figures.
 
 ### Action Figure Scales
 
