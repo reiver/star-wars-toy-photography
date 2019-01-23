@@ -378,7 +378,7 @@ In addition to this, the are very inexpensive (compared to what you are paying f
 
 A Disney **Star Wars Elite Series Premium Action Figure** costs about USD $20.
 
-If you are interested in these _Star Wars action figures_ for your _Star Wars toy photography_ I would recommend getting the **Death Trooper*
+If you are interested in these _Star Wars action figures_ for your _Star Wars toy photography_ I would recommend getting the **Death Trooper**.
 
 In fact, the _Star Wars toy photography_ I have seen with Disney's _10 inch scale_ _Star Wars Elite Series Premium Action Figures_ has been with the **Death Trooper**
 
