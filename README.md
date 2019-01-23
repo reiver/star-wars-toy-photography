@@ -249,18 +249,7 @@ Start off getting one or two **Star Wars action figures** from this list:
 
 Just pick one or two things from that list, to get started.
 
-(If you are curious, I started off with an S.H.Figuarts _Death Trooper_.)
-
-(Knowing what I know now I'd say that was probably a good choice for a first Star Wars action figure, as S.H.Figuarts tend to be more _posable_ than the alternatives in the ¹⁄₁₂ scale — in the 6 inch scale;
-and often have a higher level of detail than the alternative brands in the ¹⁄₁₂ scale — in the 6 inch scale.)
-
-(But my collection at the ¹⁄₁₂ scale -- at the 6 inch scale -- is made up of both _S.H.Figuarts Star Wars_ action figures, and _Hasbro Star Wars The Black Series_ action figures.)
-
-(The _Hasbro Black Series_ action figures are less expensive than the _S.H.Figuarts_. But the _S.H.Figuarts_ tend to be more posable, and have better details than the _Hasbro Black Series_ action figures.)
-
-(But anyway,…)
-
-Basically start of with **Star Wars action figures** that, _in the movies_, have helmets and body suits that are mostly made up of hard parts.
+Basically start off with **Star Wars action figures** that, _in the movies_, have helmets and body suits that are mostly made up of hard parts.
 
 Why?!… Because that you cannot see the eyes, the skin, and (what should be but often isn't) soft clothes on these action figures makes it is easier to take a _good_ looking photos with these action figures.
 
