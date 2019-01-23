@@ -438,3 +438,28 @@ by [chewbacookie](https://www.instagram.com/chewbacookie/)
 by [tx0666](https://www.instagram.com/tx0666/)
 ( [source](https://www.instagram.com/p/BsrglRdnUB_/) )
 
+
+## Posing
+
+Posing your characters, in interesting posing, can help increase the quality of your photos.
+
+You can see that in use with the following photos:
+
+
+
+![Mimban firefight💥💥💥](photos/examples/BomtLy3Fqqe.jpeg)
+
+by [the_imperial_grunt](https://www.instagram.com/the_imperial_grunt/)
+( [source](https://www.instagram.com/p/BomtLy3Fqqe/) )
+
+
+
+![Mimban firefight💥💥💥](photos/examples/Bs9isFfH-zx.jpeg)
+
+by [ilmanakbar.sw](https://www.instagram.com/ilmanakbar.sw/)
+( [source](https://www.instagram.com/p/Bs9isFfH-zx/) )
+
+
+
+
+
