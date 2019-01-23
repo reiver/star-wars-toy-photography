@@ -24,6 +24,7 @@ Including both:…
     * [1/6 Scale](#16-scale)
     * [1/12 Scale](#112-scale)
 * [First Photographs](#first-photographs)
+* [Dioramas](#dioramas)
 
 
 ## Photographs And Photographers
@@ -415,3 +416,13 @@ If you look at the first dozen photos of some of the _Star Wars toy photographer
 But they were able to produce amazing works over time.
 
 
+## Dioramas
+
+One way of improving your photos is to create a **diorama**.
+
+You can see that in use with this photo:
+
+![Oppress... ](photos/examples/BstUETSH_t-.jpeg)
+
+by [chewbacookie](https://www.instagram.com/chewbacookie/)
+( [source](https://www.instagram.com/p/BstUETSH_t-/) )
