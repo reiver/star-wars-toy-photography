@@ -395,10 +395,18 @@ by [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 
 
 
+![WAITING GAME...](photos/examples/BrQvBd2l_49.jpeg)
+
+by [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
+( [source](https://www.instagram.com/p/BrQvBd2l_49/) )
+
+
+
 ![MORE FROM TODAY!](photos/examples/BrT2C_vgrV6.jpeg)
 
 by [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 ( [source](https://www.instagram.com/p/BrT2C_vgrV6/) )
+
 
 
 #### 1/12 Scale (6 Inch Scale)
