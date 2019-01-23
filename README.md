@@ -475,6 +475,19 @@ by [the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 
 
 
+One skill to develop in yourself, when doing _Star Wars toy photography_, is being able to **pose** the _Star Wars action figures_.
+
+A good pose can make the action figures feel alive!
+
+And it is one component of creating an amazing photograph.
+
+The poses can come from your imagination.
+
+But you could also try reproducing poses you have seen in the Star Wars movies, or even other movies, or photograps.
+
+
+
+
 ## Dioramas
 
 One way of improving your photos is to make use of a **diorama**.
