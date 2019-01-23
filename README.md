@@ -28,6 +28,7 @@ This is a lot like how many special effects were done in the original 3 Star War
 * [Action Figures](#action-figures)
   * [Action Figure Recommendations](#action-figure-recommendations)
     * [My First Action Figure](#my-first-action-figure)
+    * [Team Of Three](#team-of-three)
   * [Action Figure Scales](#action-figure-scales)
     * [1/6 Scale (12 Inch Scale)](#16-scale-12-inch-scale)
     * [10 Inch Scale](#10-inch-scale)
@@ -294,6 +295,21 @@ Knowing what I know now I'd say that was probably a good choice for a first Star
 and often have a higher level of detail than the alternative brands in the ¹⁄₁₂ scale — in the 6 inch scale.
 
 But my collection at the ¹⁄₁₂ scale -- at the 6 inch scale -- is made up of both _S.H.Figuarts Star Wars_ action figures, and _Hasbro Star Wars The Black Series_ action figures.
+
+
+#### Team Of Three
+
+I have seen a number of _Star Wars toy photography_ photos where the subjects of the photo are 3 troopers of the same type.
+
+Maybe:
+
+* 3 _Sand Troopers_, or
+* 3 _Mimban Storm Troopers_, or
+* 3 _Death Troopers_, or
+* 3 _First Order Storm Troopers_.
+
+One option for your first _Star Wars action figures_, and your first photos, could be to get a _team of three_.
+
 
 ### Action Figure Scales
 
