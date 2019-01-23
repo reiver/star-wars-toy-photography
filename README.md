@@ -16,6 +16,7 @@ Including both:…
   * [Examples](#examples)
   * [Who To Follow on Instagram](#who-to-follow-on-instagram)
   * [Hashtags on Instagram](#hashtags-on-instagram)
+* [Style](#style)
   * [Realistic Toy Photography](#realistic-toy-photography)
   * [Movie Special Effects](#movie-special-effects)
 * [Action Figures](#action-figures)
@@ -132,13 +133,15 @@ But anyway, these are some **Star Wars toy photography** related hashtags on Ins
 * [#TheBlackSeries](https://www.instagram.com/explore/tags/theblackseries/)
 
 
-### Realistic Toy Photography
+## Style
 
 **Star Wars toy photography** comes in different forms.
 
 One of those forms is the _realistic toy photography_ form.
 
-I.e., where when you look at the photograph, you cannot immediately tell whether it is a photo of real person or people in Star Wars costumes (either in a Star Wars film, or in cosplay), or a photo of toys.
+### Realistic Toy Photography
+
+For _Star Wars toy photography_, the _realistic toy photography_ form is where when you look at the photograph, you cannot immediately tell whether it is a photo of real person or people in Star Wars costumes (either in a Star Wars film, or in cosplay), or a photo of toys.
 
 Examples of _realistic Star Wars toy photography_ was shown in the [Examples](#examples) section.
 
