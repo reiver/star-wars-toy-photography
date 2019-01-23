@@ -435,7 +435,7 @@ But they were able to produce amazing works over time.
 
 ## Posing
 
-Posing your characters, in interesting posing, can help increase the quality of your photos.
+Posing your characters, in interesting poses, can help increase the quality of your photos.
 
 You can see that in use with the following photos:
 
