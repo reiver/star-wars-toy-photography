@@ -23,6 +23,7 @@ Including both:…
   * [Action Figure Recommendations](#action-figure-recommendations)
   * [Action Figure Scales](#action-figure-scales)
     * [1/6 Scale (12 Inch Scale)](#16-scale-12-inch-scale)
+    * [10 Inch Scale](#10-inch-scale)
     * [1/12 Scale (6 Inch Scale)](#112-scale-6-inch-scale)
 * [First Photographs](#first-photographs)
 * [Posing](#posing)
@@ -347,6 +348,57 @@ Some aren't willing (or can't) and stick to less expensive _Star Wars action fig
 
 (FWIW, I do have some **¹⁄₆ scale** _Star Wars action figures_ from both _Hot Toys_, and _Sideshow_.
 But I have A LOT more _Star Wars action figures_ at the _¹⁄₁₂ scale_ _from S.H.Figuarts_, and _Hasbro The Black Series_.)
+
+
+#### 10 Inch Scale
+
+Another scale is known as the **10 inch scale**.
+
+Note that, **10 inch scale** is also sometimes written: **10" scale**.
+
+Disney has a line of **10 inch scale** action figures, that goes under the product line name of: **Star Wars: Elite Series: Premium Action Figure**.
+
+(Disney has more than one line of _Star Wars action figures_. So if you are searching for the _10 inch scale_ _Star Wars: Elite Series: Premium Action Figure_, be aware of this.)
+
+I haven't seen many people use them for _Star Wars toy photography_. Although I'm not sure why.
+
+Some of these Disney _Star Wars Elite Series Premium Action Figures_ look very photogenic.
+
+And although they aren't as detailed as _Star Wars action figures_ in the _¹⁄₆ scale_ (i.e., the _12 inch scale_) by Hot Toys or Sideshow.
+They are more detailed than _Star Wars action figures_ in the _¹⁄₁₂ scale_ (i.e., the _6 inch scale_) by Bandai (model kits, S.H.Figuarts), Medicom (Mafex), and Hasbro (The Black Series).
+
+In addition to this, the are very inexpensive (compared to what you are paying for other lines).
+
+A Disney **Star Wars Elite Series Premium Action Figure** costs about USD $20.
+
+If you are interested in these _Star Wars action figures_ for your _Star Wars toy photography_ I would recommend getting the **Death Trooper*
+
+In fact, the _Star Wars toy photography_ I have seen with Disney's _10 inch scale_ _Star Wars Elite Series Premium Action Figures_ has been with the **Death Trooper**
+
+If you want to pick up the _Death Trooper_ from this Disney line of _Star Wars action figure_ it comes under a name that is something like: **Star Wars: Elite Series: Imperial Death Trooper: Premium Action Figure**.
+
+Here are some _Stsr Wars toy photography_photos of the **10" scale Disney Star Wars Elite Series Imperial Death Trooper Premium Action Figure**:…
+
+
+
+![Disney Star Wars Elite Series Imperial Death Trooper Premium Action Figure](photos/examples/Bri6jwoHqyP.jpeg)
+
+by [@the_imperial_grunt](https://www.instagram.com/the_imperial_grunt/)
+( [source](https://www.instagram.com/p/Bri6jwoHqyP/) )
+
+
+
+![WHAT SEASON IS IT... REBEL SEASON!](photos/examples/Br4P4AGl3yz.jpeg)
+
+by [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
+( [source](https://www.instagram.com/p/Br4P4AGl3yz/) )
+
+
+
+![MORE FROM TODAY!](photos/examples/BrT2C_vgrV6.jpeg)
+
+by [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
+( [source](https://www.instagram.com/p/BrT2C_vgrV6/) )
 
 
 #### 1/12 Scale (6 Inch Scale)
