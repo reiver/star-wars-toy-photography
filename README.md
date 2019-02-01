@@ -39,6 +39,8 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
   * [Posing With Wires](#posing-with-wires)
 * [Lightbox](#lightbox)
 * [Droids](#droids)
+* [Animals](#animals)
+  * [Bantha](#bantha)
 * [Dioramas](#dioramas)
 * [Customizing](#customizing)
   * [Metal Plating](#metal-plating)
@@ -702,6 +704,28 @@ Some from _"official"_ sources, and some from non-"official" sources, that are o
 ### Imperial Probe Droid
 
 There is _"custom"_ **Imperial Probe Droid** in the **¹⁄₁₂ scale** (i.e., **6 inch scale**) available from [.JPG Productions](https://www.facebook.com/JPG-Productions-276298122480883/).
+
+
+## Animals
+
+The Star Wars universe contains a number of animals.
+
+Some of these animals are available through official sources, while others are only available though custom sources.
+
+This section goes through what options are available for each animal.
+
+### Bantha
+
+The **bantha** are a large, hairy mammals with sharp, spiraling horns.
+
+The **bantha** live in the desert of Tatooine, but were also bred on many other worlds.
+
+A custom _¹⁄₁₂ scale_ (i.e., 6 inch scale) **bantha** is available by [@budfutu](https://www.instagram.com/budfutu/) on Instagram.
+
+DM him for more information.
+
+![Custom Bantha](photos/examples/Bqe7m5DngmG.jpeg)
+
 
 
 ## Dioramas
