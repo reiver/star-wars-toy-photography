@@ -37,6 +37,7 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
 * [Posing](#posing)
   * [Posing With Wires](#posing-with-wires)
 * [Lightbox](#lightbox)
+* [Droids](#droids)
 * [Dioramas](#dioramas)
 
 
@@ -620,6 +621,21 @@ These types of shots are often created using sometimes called a **lightbox**.
 
 You can buy a lightbox.
 Or you can make your own lightbox.
+
+
+
+
+## Droids
+
+The world of Star Wars includes **droids**: autonomous robots have possess some form of artificial intelligence.
+
+There are many Star Wars droids to choose from, at different scales.
+
+Some from _"official"_ sources, and some from non-"official" sources, that are often called "customs".
+
+### Imperial Probe Droid
+
+There is _"custom"_ **Imperial Probe Droid** in the **¹⁄₁₂ scale** (i.e., **6 inch scale**) available from [.JPG Productions](https://www.facebook.com/JPG-Productions-276298122480883/).
 
 
 ## Dioramas
