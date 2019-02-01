@@ -41,6 +41,7 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
 * [Droids](#droids)
 * [Animals](#animals)
   * [Bantha](#bantha)
+  * [Dewback](#dewback)
 * [Dioramas](#dioramas)
 * [Customizing](#customizing)
   * [Metal Plating](#metal-plating)
@@ -728,6 +729,14 @@ DM him for more information.
 
 by [@budfutu](https://www.instagram.com/budfutu/)
 ( [source](https://www.instagram.com/p/Bqe7m5DngmG/) )
+
+### Dewback
+
+The **dewback** are large, think-skinned reptiles.
+
+The **dewback** live in the dessert of Tatooine.
+
+A _¹⁄₁₂ scale_ (i.e., 6 inch scale) **dewback** is available through Hasbro The Black Series.
 
 
 
