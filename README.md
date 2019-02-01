@@ -41,7 +41,9 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
 * [Droids](#droids)
 * [Dioramas](#dioramas)
 * [Customizing](#customizing)
-
+  * [Metal Plating](#metal-plating)
+    * [Electro Plating Plastic](#electro-plating-plastic)
+    * [Molotow Liquid Chrome](#molotow-liquid-chrome)
 
 ## Photographs And Photographers
 
@@ -734,3 +736,33 @@ So, not (just) buying others' [custom action figures](#custom-action-figures), b
 Not (just) buying others' custom vehicles, but (instead) making their own _custom vehicles_.
 
 Not (just) buying others' custom props, but (instead) making their own _custom props_.
+
+There are many different techniques used to create _customs_.
+
+This section will go through each of those.
+
+### Metal Plating
+
+One useful technique that can be used when customizing is **metal plating**.
+
+Giving a _action figure_, or a _vehcile_, or a _prop_ a real **metal plating** can help make it look amazing.
+
+(Constrast this with just using silver paint or gold paint, which while can look OK, doesn't look like real metal.)
+
+
+#### Electro plating plastic
+
+One technique used for **metal plating** is: **electro plating plastic**.
+
+Refer to the following tutorial for more information on this process:
+
+* [Electro plating plastic - Transformers G1 Optimus Prime](https://youtu.be/ko8yeo7_Q3w)
+
+
+#### Molotow Liquid Chrome
+
+Another technique used for **metal plating** is using **Molotow Liquid Chrome** pens.
+
+Refer to the following tutorial for more information on this process:
+
+* [Testing MOLOTOW's Chrome Pen: Is It the Solution? - Camzilla Fixes Stuff](https://youtu.be/M6JIEvjE0Fs)
