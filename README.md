@@ -627,7 +627,7 @@ Or you can make your own lightbox.
 
 ## Droids
 
-The world of Star Wars includes **droids**: autonomous robots have possess some form of artificial intelligence.
+The world of Star Wars includes **droids**: autonomous robots that possess some form of artificial intelligence.
 
 The most famous _droids_ in the Star Wars universe are probably: **C-3PO** and **R2-D2**.
 
