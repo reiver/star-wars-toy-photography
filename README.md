@@ -629,7 +629,45 @@ Or you can make your own lightbox.
 
 The world of Star Wars includes **droids**: autonomous robots have possess some form of artificial intelligence.
 
-There are many Star Wars droids to choose from, at different scales.
+The most famous _droids_ in the Star Wars universe are probably: **C-3PO** and **R2-D2**.
+
+But there are many other droids in the Star Wars universe.
+
+There are general classes of droids, such as:
+**astromech droids**,
+**assassin droids**,
+**battle droids**,
+**maintenance droids**,
+**medical droids**,
+**protocol droid**,
+etc etc.
+
+(I.e.,. you can think of this as the role the droid was designed for.)
+
+And then there are specific models of droids for each of those classes, such as:
+**B1 battle droids**,
+**B2 super battle droids**,
+**droidekas**,
+**HK assassin droids**,
+**IG assassin droids**,
+**imperial probe droids**,
+**IT-O interrogators**,
+etc etc.
+
+And there are specific droids, often with names, such as:
+**BB-8**,
+**C2-B5**,
+**K-2SO**,
+**L3-37**,
+**R2-A3**,
+**R4-I9**,
+**R5-J2**,
+**R5-K6**,
+etc etc.
+
+(There are other specific droids with names in the Star Wars universe.)
+
+Thus, there are many Star Wars droids to choose from, at different scales.
 
 Some from _"official"_ sources, and some from non-"official" sources, that are often called "customs".
 
