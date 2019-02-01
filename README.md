@@ -40,6 +40,7 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
 * [Lightbox](#lightbox)
 * [Droids](#droids)
 * [Dioramas](#dioramas)
+* [Customizing](#customizing)
 
 
 ## Photographs And Photographers
@@ -720,3 +721,14 @@ by [@chewbacookie](https://www.instagram.com/chewbacookie/)
 
 by [@tx0666](https://www.instagram.com/tx0666/)
 ( [source](https://www.instagram.com/p/BsrglRdnUB_/) )
+
+
+## Customizing
+
+Some _Star Wars toy photographers_ eventually decide to get into _customizing_.
+
+So, not (just) buying others' [custom action figures](#custom-action-figures), but (instead) making their own _custom action figures_.
+
+Not (just) buying others' custom vehicles, but (instead) making their own _custom vehicles_.
+
+Not (just) buying others' custom props, but (instead) making their own _custom props_.
