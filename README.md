@@ -33,6 +33,7 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
     * [1/6 Scale (12 Inch Scale)](#16-scale-12-inch-scale)
     * [10 Inch Scale](#10-inch-scale)
     * [1/12 Scale (6 Inch Scale)](#112-scale-6-inch-scale)
+  * [Custom Action Figures](#custom-action-figures)
 * [First Photographs](#first-photographs)
 * [Posing](#posing)
   * [Posing With Wires](#posing-with-wires)
@@ -486,6 +487,30 @@ And have OK (although not the best) level of detail.
 But _Star Wars action figures_ in the **¹⁄₁₂ scale** tend to be the more affordable option than, for example, _Star Wars action figures_ in the _¹⁄₆ scale_.
 
 A single _Star Wars action figure_ in the **¹⁄₁₂ scale** will probably cost between $10 to $100.
+
+
+### Custom Action Figures
+
+There is a very active scene around what are called **_custom_ action figures**.
+
+These _customs_ are not made by any of these official companies.
+
+These _customs_ are fan-made action figures.
+
+Some of these are very good!
+
+There are a number of souces of these. Below is an incomplete list:
+
+* [eBay](https://www.ebay.com/sch/i.html?_nkw=star+wars+custom) : search for: "star wars custom"
+* [Two Sons Casting](https://www.twosunscasting.com/)
+
+Some of these **custom Star Wars action figures** are modifications of existing actions figures (such as Hasbro The Black Series, or S.H.Figuarts).
+Maybe painting the figure. Or replacing the existing head, with a custom resin cast head.
+
+And some of these **custom Star Wars action figures** made completely from scratch.
+
+(How these **custom Star Wars action figures** are created is interesting, and the subject of another section in this document, for those interested in the topic.)
+
 
 
 ## First Photographs
