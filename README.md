@@ -347,6 +347,7 @@ So, what do we really mean by **scale**.…
 
 One scale is known as the **¹⁄₆ scale**.
 Many people also write this as: **1/6 scale**.
+Some write this as **1:6 scale**..
 
 This is also sometimes called the **12 inch scale**.
 Which is also sometimes written: **12" scale**.
@@ -453,6 +454,7 @@ by [@the_chip_monsters](https://www.instagram.com/the_chip_monsters/)
 At least at the time of writting, the **¹⁄₁₂ scale** is much more popular (in terms of usage) for _Star Wars toy photography (than the _¹⁄₆ scale_)._
 
 The **¹⁄₁₂ scale** is also written as: **1/12 scale**.
+Some write this as **1:12 scale**..
 
 This is also sometimes called the **6 inch scale**.
 Which is also sometimes written: **6" scale**.
