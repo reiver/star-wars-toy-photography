@@ -43,6 +43,7 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
   * [Bantha](#bantha)
   * [Dewback](#dewback)
 * [Dioramas](#dioramas)
+  * [Snow](#snow)
 * [Customizing](#customizing)
   * [Metal Plating](#metal-plating)
     * [Electro Plating Plastic](#electro-plating-plastic)
@@ -763,6 +764,46 @@ by [@tx0666](https://www.instagram.com/tx0666/)
 ( [source](https://www.instagram.com/p/BsrglRdnUB_/) )
 
 ### SpaceWalls
+
+### Snow
+
+Snow, whether real or fake, can be used to create a scene for a _Star Wars toy photography_ photo.
+
+Here are some examples:
+
+
+
+![Mimban/Speeder shot](photos/examples/BoKGfBMFMfC.jpeg)
+
+by [@passage2alderaan](https://www.instagram.com/passage2alderaan/)
+( [source](https://www.instagram.com/p/BoKGfBMFMfC/) )
+
+
+
+![B side.](photos/examples/BRBlYAKjAuR.jpeg)
+
+by [@sgtbananas](https://www.instagram.com/sgtbananas/)
+( [source](https://www.instagram.com/p/BRBlYAKjAuR/) )
+
+
+
+![The icy grip of fear...](photos/examples/BteEcFmHqJO.jpeg)
+
+by [@geek.turtle](https://www.instagram.com/geek.turtle/)
+( [source](https://www.instagram.com/p/BteEcFmHqJO/) )
+
+
+
+![Just need to hold them off a little longer.](photos/examples/BtYZOUJnT5C.jpeg)
+
+by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photography/)
+( [source](https://www.instagram.com/p/BtYZOUJnT5C/) )
+
+
+
+
+
+
 
 
 ## Customizing
