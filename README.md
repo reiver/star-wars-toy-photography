@@ -770,6 +770,10 @@ by [@tx0666](https://www.instagram.com/tx0666/)
 
 **Snow**, whether real or fake, can be used to create a scene for a _Star Wars toy photography_ photo.
 
+Not only are there _troopers_ classes that are made for the snow, such as the **Snowtroopers**, and the **First Order Snowtroopers**.
+
+But also, many other _trooper_ classes, as well as vehicles, animals, and other Star Wars characters look great in the snow too.
+
 Here are some examples:
 
 
