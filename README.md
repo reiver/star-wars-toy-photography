@@ -827,6 +827,18 @@ by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photog
 
 
 
+The _Star Wars toy photographer_ has detailed what he used to make this kind of shot, included what he used to create the snow:
+
+
+
+![Behind The Scenes: I can do this.](photos/examples/BthH9TwHm31.jpeg)
+
+by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photography/)
+( [source](https://www.instagram.com/p/BthH9TwHm31/) )
+
+
+
+You can see that the _Star Wars toy photographer_ is just spraying **Chase Santa Snow Spray** on the dirt.
 
 
 
