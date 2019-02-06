@@ -768,7 +768,7 @@ by [@tx0666](https://www.instagram.com/tx0666/)
 
 ### Snow
 
-Snow, whether real or fake, can be used to create a scene for a _Star Wars toy photography_ photo.
+**Snow**, whether real or fake, can be used to create a scene for a _Star Wars toy photography_ photo.
 
 Here are some examples:
 
@@ -800,6 +800,17 @@ by [@geek.turtle](https://www.instagram.com/geek.turtle/)
 by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photography/)
 ( [source](https://www.instagram.com/p/BtYZOUJnT5C/) )
 
+
+With dioramas, there are different ways of creating something that looks like snow.
+
+Some of these can be used in outdoor settings, such as with:
+
+
+
+![Behind The Scenes: Just need to hold them off a little longer.](photos/examples/BtYZOUJnT5C_____2.jpeg)
+
+by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photography/)
+( [source](https://www.instagram.com/p/BtYZOUJnT5C/) )
 
 
 
