@@ -807,6 +807,13 @@ by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photog
 
 
 
+![I’ve got nothing new.](photos/examples/BthmoXoHpAW.jpeg)
+
+by [@3lesie](https://www.instagram.com/3lesie/)
+( [source](https://www.instagram.com/p/BthmoXoHpAW/) )
+
+
+
 ![Just need to hold them off a little longer.](photos/examples/BtYZOUJnT5C.jpeg)
 
 by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photography/)
