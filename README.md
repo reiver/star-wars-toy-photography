@@ -854,12 +854,36 @@ And some of these ways (of creating something that looks like snow) can be used 
 
 ![BTS’s.... (requested) of The icy grip of fear...](photos/examples/BtelyNZHyfG.jpeg)
 
-by [@geek.turtle](geek.turtle)
+by [@geek.turtle](https://www.instagram.com/geek.turtle/)
 ( [source](https://www.instagram.com/p/BtelyNZHyfG/) )
 
 
 
-A technique not used in either of those two examples, but I saw elsewhere, was to use a product created by [Precision Ice And Snow](https://www.precisioniceandsnow.com/) named: [Krycell Snow Powders](https://www.precisioniceandsnow.com/snow-powders.html).
+And with:
+
+
+
+![BTS of the last post. Used flour, sand, an aquarium rock and a can of compressed air to blow the flour around. I layered a few of the shots to add volume to the “snow”](photos/examples/BtixYjBn9Dt.jpeg)
+
+by [@3lesie](https://www.instagram.com/3lesie/)
+( [source](https://www.instagram.com/p/BtixYjBn9Dt/) )
+
+
+
+And:
+
+
+
+![BTS of the last post. Used flour, sand, an aquarium rock and a can of compressed air to blow the flour around. I layered a few of the shots to add volume to the “snow”](photos/examples/BtixYjBn9Dt_____2.jpeg)
+
+by [@3lesie](https://www.instagram.com/3lesie/)
+( [source](https://www.instagram.com/p/BtixYjBn9Dt/) )
+
+
+
+Where that _Star Wars toy photographer used **flour**, and **sand**.
+
+A technique not used in either of those examples, but I saw elsewhere, was to use a product created by [Precision Ice And Snow](https://www.precisioniceandsnow.com/) named: [Krycell Snow Powders](https://www.precisioniceandsnow.com/snow-powders.html).
 
 See this tutorial for an example of how Krycell Snow Powders is used, and how the result looks: "[How To Apply Ice And Snow Effects To Scale Armour +](https://youtu.be/Tr59yQ6f2Uw)"
 
