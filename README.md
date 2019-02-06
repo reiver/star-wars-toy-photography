@@ -826,8 +826,7 @@ by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photog
 
 
 
-
-The _Star Wars toy photographer_ has detailed what he used to make this kind of shot, included what he used to create the snow:
+This _Star Wars toy photographer_ has detailed what he used to make this kind of shot, included what he used to create the snow:
 
 
 
@@ -839,6 +838,17 @@ by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photog
 
 
 You can see that the _Star Wars toy photographer_ is just spraying **Chase Santa Snow Spray** on the dirt.
+
+
+And some of these can be used with indoor settings, such as with:
+
+
+
+![BTS’s.... (requested) of The icy grip of fear...](photos/examples/BtelyNZHyfG.jpeg)
+
+by [@geek.turtle](geek.turtle)
+( [source](https://www.instagram.com/p/BtelyNZHyfG/) )
+
 
 
 
