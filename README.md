@@ -815,7 +815,7 @@ by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photog
 
 With dioramas, there are different ways of creating something that looks like snow.
 
-Some of these can be used in outdoor settings, such as with:
+Some of these ways (of creating something that looks like snow) can be used in outdoor settings, such as with:
 
 
 
@@ -840,7 +840,7 @@ by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photog
 You can see that the _Star Wars toy photographer_ is just spraying **Chase Santa Snow Spray** on the dirt.
 
 
-And some of these can be used with indoor settings, such as with:
+And some of these ways (of creating something that looks like snow) can be used with indoor settings, such as with:
 
 
 
@@ -848,6 +848,12 @@ And some of these can be used with indoor settings, such as with:
 
 by [@geek.turtle](geek.turtle)
 ( [source](https://www.instagram.com/p/BtelyNZHyfG/) )
+
+
+
+A technique not used in either of those two examples, but I saw elsewhere, was to use a product created by [Precision Ice And Snow](https://www.precisioniceandsnow.com/) named: [Krycell Snow Powders](https://www.precisioniceandsnow.com/snow-powders.html).
+
+See this tutorial for an example of how Krycell Snow Powders is used, and how the result looks: "[How To Apply Ice And Snow Effects To Scale Armour +](https://youtu.be/Tr59yQ6f2Uw)"
 
 
 
