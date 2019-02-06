@@ -881,7 +881,7 @@ by [@3lesie](https://www.instagram.com/3lesie/)
 
 
 
-Where that _Star Wars toy photographer used **flour**, and **sand**.
+Where that _Star Wars toy photographer_ used **flour**, and **sand**.
 
 A technique not used in either of those examples, but I saw elsewhere, was to use a product created by [Precision Ice And Snow](https://www.precisioniceandsnow.com/) named: [Krycell Snow Powders](https://www.precisioniceandsnow.com/snow-powders.html).
 
