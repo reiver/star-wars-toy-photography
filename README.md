@@ -801,6 +801,14 @@ by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photog
 ( [source](https://www.instagram.com/p/BtYZOUJnT5C/) )
 
 
+
+![In the trenches of Hoth.](photos/examples/BqXxhb3Hsq6.jpeg)
+
+by [@papa_palpatine_photography](https://www.instagram.com/papa_palpatine_photography/)
+( [source](https://www.instagram.com/p/BqXxhb3Hsq6/) )
+
+
+
 With dioramas, there are different ways of creating something that looks like snow.
 
 Some of these can be used in outdoor settings, such as with:
