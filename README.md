@@ -946,7 +946,7 @@ These include different kinds of blasters, lightsabres, electrostaffs, canons, m
 
 One of the most famous weapons in the Star Wars universe if the **lightsaber**.
 
-A type of _energy sword_ often yields around by Jedi and Sith.
+A type of _energy sword_ often yielded around by Jedi and Sith.
 
 Some [action figures](#action-figures) come with **lightsabers**.
 
