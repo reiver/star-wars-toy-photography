@@ -48,6 +48,11 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
   * [Metal Plating](#metal-plating)
     * [Electro Plating Plastic](#electro-plating-plastic)
     * [Molotow Liquid Chrome](#molotow-liquid-chrome)
+* [Weapons](#weapons)
+  * [Lightsabers](#lightsabers)
+    * [Custom Lightsabers](#custom-lightsabers)
+      * [Purchasing Custom Lightsabers](#purchasing-custom-lightsabers)
+      * [Making Custom Lightsabers](#making-custom-lightsabers)
 
 ## Photographs And Photographers
 
@@ -929,3 +934,37 @@ Another technique used for **metal plating** is using **Molotow Liquid Chrome** 
 Refer to the following tutorial for more information on this process:
 
 * [Testing MOLOTOW's Chrome Pen: Is It the Solution? - Camzilla Fixes Stuff](https://youtu.be/M6JIEvjE0Fs)
+
+
+## Weapons
+
+The _Star Wars_ universe contains a number of different weapons.
+
+These include different kinds of blasters, lightsabres, electrostaffs, canons, mortars, grenades, and many other types of weapons.
+
+### Lightsabers
+
+One of the most famous weapons in the Star Wars universe if the **lightsaber**.
+
+A type of _energy sword_ often yields around by Jedi and Sith.
+
+Some [action figures](#action-figures) come with **lightsabers**.
+
+#### Custom Lightsabers
+
+But _custom_ **lightsabers** (that can be used with action figures of various scales) also exist.
+
+##### Purchasing Custom Lightsabers
+
+There are some people who make _custom_ **lightsabers**, and sell them on eBay.
+
+Here are some eBay vendors that sell _custom_ **lightsabers**:
+
+* [el_duderino472](https://www.ebay.com/usr/el_duderino472)
+
+##### Making Custom Lightsabers
+
+And for those who are interested in creating their own _custom_ **lightsabers**, some peolpe use a product from [Plastruct](http://plastruct.com/) to create _custom_ **lightsabers**.
+Namely their [3/32" Fluorescent Rods](https://plastruct.com/?s=3%2F32+rod&post_type=product)
+
+
