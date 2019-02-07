@@ -944,7 +944,7 @@ Refer to the following tutorial for more information on this process:
 
 The _Star Wars_ universe contains a number of different weapons.
 
-These include different kinds of blasters, [lightsabres](#lightsabers), electrostaffs, canons, mortars, grenades, and many other types of weapons.
+These include different kinds of [blasters](#blasters), [lightsabres](#lightsabers), electrostaffs, canons, mortars, grenades, and many other types of weapons.
 
 With _Star Wars toy photography_, likely you will want weapons that are in scale with whatever scale of _action figures_ you are using.
 
