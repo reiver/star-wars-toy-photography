@@ -49,6 +49,10 @@ This is a lot like how many forms of cinematic _special effects_ were done in th
     * [Electro Plating Plastic](#electro-plating-plastic)
     * [Molotow Liquid Chrome](#molotow-liquid-chrome)
 * [Weapons](#weapons)
+  * [Blasters](#blasters)
+    * [Custom Blasters](#custom-blasters)
+      * [Purchasing Custom Blasters](#purchasing-custom-blasters)
+      * [Making Custom Blasters](#making-custom-blasters)
   * [Lightsabers](#lightsabers)
     * [Custom Lightsabers](#custom-lightsabers)
       * [Purchasing Custom Lightsabers](#purchasing-custom-lightsabers)
@@ -940,7 +944,53 @@ Refer to the following tutorial for more information on this process:
 
 The _Star Wars_ universe contains a number of different weapons.
 
-These include different kinds of blasters, lightsabres, electrostaffs, canons, mortars, grenades, and many other types of weapons.
+These include different kinds of blasters, [lightsabres](#lightsabers), electrostaffs, canons, mortars, grenades, and many other types of weapons.
+
+With _Star Wars toy photography_, likely you will want weapons that are in scale with whatever scale of _action figures_ you are using.
+
+Whether that be
+the **¹⁄₁₂ scale** (i.e., 1/12 scale, 1:12 scale, 6 inch scale),
+the **¹⁄₆ scale** (i.e., 1/6 scale, 1:6 scale, 12 inch scale),
+or whatever.
+
+So, for example, if you are working with **¹⁄₁₂ scale** action figures, you will likely want to use **¹⁄₁₂ scale** weapons.
+
+For the most part, there are 4 options for getting weapons for your _action figures_:
+
+* using the scale weapon that came with your action figure,
+* using the scale weapon of another (different) action figure (whether that be Star Wars or not),
+* buying a weapon make by a company or person that makes _scale_ weapons (to use with action figures),
+* making a scale weapon yourself.
+
+
+### Blasters
+
+A common type of weapon in the Star Wars universe is the **blaster**.
+
+They are a _energized particle weapon_ that looks like a gun.
+
+Many Star Wars [action figures](#action-figures) come with **blasters**.
+
+#### Custom Blasters
+
+But _custom_ **blasters**, or things that can pass as **blasters**, (that can be used with action figures of various scales) also exist.
+
+##### Purchasing Custom Blasters
+
+There are some companies who make _custom_ riffle and guns that can **blasters**.
+
+Here are some of these companies:
+
+* Little Armory
+  * [¹⁄₁₂ scale](https://www.ebay.com/sch/i.html?_nkw=Little+Armory)
+* [Marauder](https://www.marauderinc.com/)
+  * [¹⁄₁₈ scale](https://www.marauderinc.com/category-s/1820.htm)
+  * [¹⁄₁₂ scale](https://www.marauderinc.com/category-s/2088.htm)
+
+##### Making Custom Blasters
+
+Making your own _custom_ **blasters** can be done with **injection moulding**, and **3D printing**.
+
 
 ### Lightsabers
 
